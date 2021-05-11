@@ -411,3 +411,97 @@ https://www.youtube.com/watch?v=zcc5jXxOZec
 
 Fingerstyle UKULELE Lesson #139​: DOWNTOWN (Petula Clark)
 https://www.youtube.com/watch?v=V8c4c2SpjEA
+
+Fingerstyle UKULELE Lesson #140​: NJOSNAVELIN (Sigur Ros)
+https://www.youtube.com/watch?v=ooHGqiVrPjk
+
+Fingerstyle UKULELE Lesson #141​: WEIT WEIT WEG (Hubert von Goisern)
+https://www.youtube.com/watch?v=7jdPqGZdbgs
+
+Fingerstyle UKULELE Lesson #142​: MINUET IN G (Bach/Petzold)
+https://www.youtube.com/watch?v=LM3ZT3uhvHY
+
+Fingerstyle UKULELE Lesson #143​: KILLING ME SOFTLY (Roberta Flack)
+https://www.youtube.com/watch?v=ZVusroLi6gA
+
+Fingerstyle UKULELE Lesson #144​: EIN STERN, DER DEINEN NAMEN TRÄGT
+https://www.youtube.com/watch?v=ZkvavQXcGuA
+
+Fingerstyle UKULELE Lesson #145​: MOLLY MALONE (Irish Traditional)
+https://www.youtube.com/watch?v=z663EzH7CME
+
+Fingerstyle UKULELE Lesson #146​: AMAZING GRACE
+https://www.youtube.com/watch?v=2QSSRNpN_zM
+
+Fingerstyle UKULELE LESSON #147​: CAN'T HELP FALLING IN LOVE
+https://www.youtube.com/watch?v=l7zDuvoF1WM
+
+Fingerstyle UKULELE Lesson #148​: LOVE ME DO (The Beatles)
+https://www.youtube.com/watch?v=4nBp3QtWXHY
+
+Fingerstyle UKULELE Lesson #149​: LOVE ME TENDER (Elvis Presley)
+https://www.youtube.com/watch?v=xoQgBUAV0Ew
+
+Fingerstyle UKULELE Lesson #150​: GIRL FROM THE NORTH COUNTRY (Bob Dylan)
+https://www.youtube.com/watch?v=PaV4JddLbhI
+
+Fingerstyle UKULELE Lesson #151​: RING OF FIRE (Johnny Cash)
+https://www.youtube.com/watch?v=PnlVS71oNDA
+
+Fingerstyle UKULELE Lesson #152​: THE LION SLEEPS TONIGHT
+https://www.youtube.com/watch?v=ZVdpG0WQLWM
+
+Fingerstyle UKULELE Lesson #153​: FLY ME TO THE MOON
+https://www.youtube.com/watch?v=0ksuGNH5930
+
+Fingerstyle UKULELE Lesson #154​: FAREWELL TAE TARWATHIE
+https://www.youtube.com/watch?v=XiyO2f-iMdo
+
+Fingerstyle UKULELE LESSON #155​: NO WOMAN NO CRY (Bob Marley)
+https://www.youtube.com/watch?v=G4a3s6lz1Hc
+
+Fingerstyle UKULELE Lesson #156​: THE SPANISH LADY (Irish Traditional)
+https://www.youtube.com/watch?v=8qp2WPn1KTc
+
+Fingerstyle UKULELE Lesson #157​: LET IT BE (The Beatles)
+https://www.youtube.com/watch?v=2PAVjVuFoNo
+
+Fingerstyle UKULELE Lesson #158​: FRIDAY I'M IN LOVE (The Cure)
+https://www.youtube.com/watch?v=_JvxbmYx8Zs
+
+Fingerstyle UKULELE Lesson #159​: NUMB (Linkin Park)
+https://www.youtube.com/watch?v=7-6xj1CZRkA
+
+Fingerstyle UKULELE Lesson #160​: O'KEEFE'S SLIDE (Irish Traditional)
+https://www.youtube.com/watch?v=RGdNHSPEfTk
+
+Fingerstyle UKULELE Lesson #161​: BELLA CIAO
+https://www.youtube.com/watch?v=zIe0UnTocS0
+
+Fingerstyle UKULELE Lesson #162​: WINTER WONDERLAND
+https://www.youtube.com/watch?v=CloVNAIJFRk
+
+Fingerstyle UKULELE Lesson #163​: LAMBADA
+https://www.youtube.com/watch?v=lNI2vVOLhfA
+
+Fingerstyle UKULELE Lesson #164​: LEISE RIESELT DER SCHNEE
+https://www.youtube.com/watch?v=eW4eQpAZuK4
+
+Fingerstyle UKULELE Lesson #165​: ALWAYS WITH ME (Spirited Away)
+https://www.youtube.com/watch?v=lL1x8lrkhvs
+
+Fingerstyle UKULELE Lesson #166​: STILL GOT THE BLUES (Gary Moore)
+https://www.youtube.com/watch?v=qB4b_MLvniA
+
+Fingerstyle UKULELE Lesson #167​: SPANISH ROMANCE
+https://www.youtube.com/watch?v=-Ft3LXGDQJc
+
+Fingerstyle UKULELE Lesson #168​: HO HEY (The Lumineers)
+https://www.youtube.com/watch?v=TlRrMOg4wfI
+
+Fingerstyle UKULELE Lesson #169​: TRUE COLORS (Cyndi Lauper)
+https://www.youtube.com/watch?v=a2CkTIsp43I
+
+Fingerstyle UKULELE Lesson #170​: JOHN BARLEYCORN (English Ballad)
+https://www.youtube.com/watch?v=8agoWmKt0a0
+
