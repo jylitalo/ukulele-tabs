@@ -7,23 +7,8 @@ https://www.youtube.com/watch?v=qhVpMM2pLk4&t=9s
 Fingerstyle Ukulele Lesson #3: HAPPY BIRTHDAY
 https://www.youtube.com/watch?v=QbOhkOrMkwg
 
-CHRISTMAS Ukulele Lesson #1: STILLE NACHT/SILENT NIGHT - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=tNbjVh950Xs
-
-CHRISTMAS Ukulele Lesson #2: ANGELS WE HAVE HEARD ON HIGH - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=ETqDk68lbzg
-
-CHRISTMAS Ukulele Lesson #3: O TANNENBAUM/O CHRISTMAS TREE - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=lwKMqZrq0uI
-
-CHRISTMAS Ukulele Lesson #4: RUDOLPH THE RED-NOSED REINDEER - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=eEtDNPyeH1E
-
 Fingerstyle Ukulele Lesson #4: TWINKLE TWINKLE LITTLE STAR
 https://www.youtube.com/watch?v=lDTiKYPRo0A
-
-CHRISTMAS Ukulele Lesson #5: MORGEN KOMMT DER WEIHNACHTSMANN - Instrumental Version
-https://www.youtube.com/watch?v=m0sZFU1-rV8
 
 Fingerstyle Ukulele Lesson #5: GUTEN ABEND, GUTE NACHT (Brahms Lullaby)
 https://www.youtube.com/watch?v=AN8oMWdppG0
@@ -42,25 +27,6 @@ https://www.youtube.com/watch?v=mZcfQ34tgBo
 
 Fingerstyle Ukulele Lesson #10: FARE THEE WELL/THE LEAVING OF LIVERPOOL
 https://www.youtube.com/watch?v=AlXwuGsOT6Q
-
-CHRISTMAS Ukulele Lesson #6: LAST CHRISTMAS (PART 1) - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=KEZGeF74Csw
-CHRISTMAS Ukulele Lesson #7: LAST CHRISTMAS (PART 2) - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=MsTtln_R6wY
-RIP George Michael (1963 - 2016): LAST CHRISTMAS - Fingerstyle Ukulele
-https://www.youtube.com/watch?v=OU9CpklQXBY
-
-CHRISTMAS Ukulele Lesson #8: LITTLE DRUMMER BOY - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=MpEnMDXD-6c
-
-CHRISTMAS Ukulele Lesson #9: STILLE NACHT/SILENT NIGHT (played with HARMONICS!) - Instrumental
-https://www.youtube.com/watch?v=gJ2IqUOnFuY
-
-CHRISTMAS Ukulele Lesson #10: JINGLE BELLS - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=ks-IyYlZbHI
-
-CHRISTMAS Ukulele Lesson #11: EL NOI DE LA MARE - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=uHb6l8hOobs
 
 Fingerstyle Ukulele Lesson #11: YOU ARE NOT ALONE (Michael Jackson)
 https://www.youtube.com/watch?v=OduIKsaEszw
@@ -136,84 +102,6 @@ https://www.youtube.com/watch?v=Q52xIaKeIUo
 Fingerstyle Ukulele Lesson #34: MAD WORLD (Gary Jules)
 https://www.youtube.com/watch?v=OPdg2IttXUU
 
-Fingerstyle Ukulele Lesson #35: Riffs, Intros & Songs (#1): WALKING ON SUNSHINE / PRAYER IN C
-1. WALKING ON SUNSHINE by Katrina & The Waves (1985)
-2. PRAYER IN C by Lilly & The Prick (2010)
-https://www.youtube.com/watch?v=wT6_geZ9k9s
-
-Fingerstyle Ukulele lesson #36: Riffs, Intros & Songs (#2) : LOSING MY RELIGION / 5 YEARS TIME
-1. LOSING MY RELIGION by R.E.M (1991)
-2. 5 YEARS TIME by Noah & The Whale (2007)
-https://www.youtube.com/watch?v=IoJSTRlzDQc
-
-Fingerstyle Ukulele Lesson #37: Riffs, Intros & Songs (#3) : LEARNING TO FLY / CLOCKS
-1. LEARNING TO FLY by Tom Petty & The Heartbreakers (1991)
-2. CLOCKS by Coldplay (2002)
-https://www.youtube.com/watch?v=NYFzroWnqk4
-
-Fingerstyle Ukulele Lesson #38: Riffs, Intros & Songs (#4) : VIVA LA VIDA / FAST CAR
-1. VIVA LA VIDA by Coldplay (2008)
-2. Fast Car by Tracey Chapman ( 1988)
-https://www.youtube.com/watch?v=WalSC-kGB6k
-
-Fingerstyle Ukulele Lesson #39: Riffs, Intros & Songs (#5) : SEVEN NATION ARMY / HIT THE ROAD
-1. SEVEN NATION ARMY by The White Stripes (2003)
-2. HIT THE ROAD JACK by Percy Mayfield/Ray Charles (1961)
-https://www.youtube.com/watch?v=sD7ZbmsWzls
-
-Fingerstyle Ukulele Lesson #40: Riffs, Intros & Songs (#6) : SMOKE ON THE WATER / HIGHWAY TO HELL
-1. SMOKE ON THE WATER by Deep Purple (1972)
-2. HIGHWAY TO HELL by AC/DC (1979)
-https://www.youtube.com/watch?v=0dDJxJXzj8I
-
-Fingerstyle Ukulele Lesson #41: Riffs, Intros & Songs (#7): ZOMBIE / THE PASSENGER
-1. ZOMBIE by The Cranberries (1994)
-2. THE PASSENGER by Iggy Pop (1977)
-https://www.youtube.com/watch?v=EiLrv0GtEIc
-
-Fingerstyle Ukulele Lesson #42: Riffs, Intros & Songs (#8) . MISSION IMPOSSIBLE / MISTER SANDMAN
-1. MISSION IMPOSSIBLE (1996)
-2. Mr. SANDMAN (1954)
-https://www.youtube.com/watch?v=QWc8hT1ELGQ
-
-Fingerstyle Ukulele Lesson #43: Riffs, Intros & Songs (#9) : BILLIE JEAN / WIPE OUT
-1. BILLIE JEAN by Michael Jackson (1993)
-2. WIPE OUT by The Ventures (1963)
-https://www.youtube.com/watch?v=xhQ5_NEBXbg
-
-CHRISTMAS Ukulele Lesson #12: ICH GEH MIT MEINER LATERNE - Fingerstyle Instrumental
-https://www.youtube.com/watch?v=V7aWnEvfeTA
-CHRISTMAS Ukulele #2: ICH GEH MIT MEINER LATERNE
-https://www.youtube.com/watch?v=o2C2EnZYgCw
-
-CHRISTMAS Ukulele Lesson #13: LASST UNS FROH UND MUNTER SEIN - Fingerstyle Instrumental
-https://www.youtube.com/watch?v=pPZei_ib2dU
-CHRISTMAS Ukulele #6: LASST UNS FROH UND MUNTER SEIN
-https://www.youtube.com/watch?v=hVq_qMdDT7A
-
-CHRISTMAS Ukulele Lesson #14: AM WEIHNACHTSBAUM DIE LICHTER BRENNEN - Fingerstyle Instrumental
-https://www.youtube.com/watch?v=6kDKb8Wjxg8
-CHRISTMAS UKULELE #3: AM WEIHNACHTSBAUM DIE LICHTER BRENNEN
-https://www.youtube.com/watch?v=C7ZCXZZWkXw
-
-CHRISTMAS Ukulele Lesson #15: SCHNEEFLÖCKCHEN; WEISSRÖCKCHEN - Fingerstyle Instrumental
-https://www.youtube.com/watch?v=6Ac48_WnU88
-CHRISTMAS Ukulele #8: SCHNEEFLÖCKCHEN WEISSRÖCKCHEN
-https://www.youtube.com/watch?v=1d1u_1d23gQ
-
-CHRISTMAS Ukulele Lesson #16: WERST MEI LIACHT UME SEI - Fingerstyle Instrumental
-https://www.youtube.com/watch?v=Xe6uMrHcX2w
-CHRISTMAS Ukulele #4: WERST MEI LIACHT UME SEIN
-https://www.youtube.com/watch?v=dL7z2R5ZFqo
-
-CHRISTMAS Ukulele Lesson #17: LEISE RIESELT DER SCHNEE - Fingerstyle Instrumental
-https://www.youtube.com/watch?v=j6JlhXQ9MLE
-CHRISTMAS Ukulele #14: LEISE RIESELT DER SCHNEE
-https://www.youtube.com/watch?v=FwnIgmt0bII
-
-CHRISTMAS Ukulele Lesson #18: ES IST EIN ROS' ENTSPRUNGEN - Fingerstyle Instrumental
-https://www.youtube.com/watch?v=sU0C_-Xgw2Q
-
 Fingerstyle Ukulele Lesson #44: YOU ARE MY SUNSHINE
 https://www.youtube.com/watch?v=ldjXmhmsggM
 
@@ -225,61 +113,6 @@ https://www.youtube.com/watch?v=cogk9lDgiBQ
 
 Fingerstyle Ukulele Lesson #47: BOULEVARD OF BROKEN DREAMS (Green Day)
 https://www.youtube.com/watch?v=z5V156Vuytg
-
-CHRISTMAS Ukulele Lesson #19: HEIDSCHI BUMBEIDSCHI - Fingerstyle Instrumental
-https://www.youtube.com/watch?v=VJqSbjZjsYo
-CHRISTMAS Ukulele #1: HEIDSCHI BUMBEIDSCHI
-https://www.youtube.com/watch?v=4NZys2pxzFw
-
-CHRISTMAS Ukulele Lesson #20: ES WIRD SCHO GLEI DUMPA - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=X9qrYcN546o
-CHRISTMAS Ukulele #10: ES WIRD SCHO GLEI DUMPA
-https://www.youtube.com/watch?v=w-k567io3QM
-
-CHRISTMAS Ukulele Lesson #21: IHR KINDERLEIN KOMMET - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=WGNU83hDJrs
-CHRISTMAS Ukulele #5: IHR KINDERLEIN KOMMET
-https://www.youtube.com/watch?v=gNz3M1PIyC8
-
-CHRISTMAS Ukulele Lesson #22: IN THE BLEAK MIDWINTER - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=SOYdVB2OtwY
-
-CHRISTMAS Ukulele Lesson #23: THE FIRST NOWELL - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=t8ndD574dow
-CHRISTMAS Ukulele #13: THE FIRST NOWELL
-https://www.youtube.com/watch?v=mvFgojXWw58
-
-CHRISTMAS Ukulele Lesson #24: THIS CHRISTMASTIDE - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=ajX--lVcBL8
-CHRISTMAS Ukulele #12: THIS CHRISTMASTIDE (JESSYE'S CAROL)
-https://www.youtube.com/watch?v=-k-rBmhADog
-
-CHRISTMAS Ukulele Lesson #25: GOOD KING WENCESLAS - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=H6tgHICOhA0
-CHRISTMAS Ukulele #15: GOOD KING WENCESLAS
-https://www.youtube.com/watch?v=jHYAr5hiVLs
-
-CHRISTMAS Ukulele Lesson #26: DECK THE HALLS - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=pO2371pFIg8
-
-Christmas Ukulele Lesson #27: GESU BAMBINO (Luciano Pavarotti Version) - Fingerstyle Instrumental
-https://www.youtube.com/watch?v=1GzLMaiQqUU
-
-CHRISTMAS Ukulele Lesson #28: GO TELL IT ON THE MOUNTAIN - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=zbkzT4EU4MA
-CHRISTMAS Ukulele #7: GO TELL IT ON THE MOUNTAIN
-https://www.youtube.com/watch?v=kXbW-EXVcrg
-
-CHRISTMAS Ukulele Lesson #29: THE HURON CAROL - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=rgBnp3utmVE
-CHRISTMAS Ukulele #9: HURON CAROL (TWAS IN THE MOON OF WINTERTIME)
-https://www.youtube.com/watch?v=PIBzXyjhBm4
-
-CHRISTMAS Ukulele Lesson #30: JOLLY OLD SAINT NICHOLAS - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=8oBGWT0PKig
-
-CHRISTMAS Ukulele Lesson #31: ALLE JAHRE WIEDER - Fingerstyle Instrumental Version
-https://www.youtube.com/watch?v=vFvKYHrSG-o
 
 Fingerstyle Ukulele Lesson #44: KUMBAYA
 https://www.youtube.com/watch?v=7VPqyAqfhQY
