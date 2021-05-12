@@ -505,3 +505,92 @@ https://www.youtube.com/watch?v=a2CkTIsp43I
 Fingerstyle UKULELE Lesson #170​: JOHN BARLEYCORN (English Ballad)
 https://www.youtube.com/watch?v=8agoWmKt0a0
 
+Fingerstyle UKULELE Lesson #171: SAD LISA (Cat Stevens)
+https://www.youtube.com/watch?v=QoQmmJOE6R0
+
+Fingerstyle UKULELE Lesson #172: THE LAST THING ON MY MIND (Tom Paxton)
+https://www.youtube.com/watch?v=zC_ZWrqUscs
+
+Fingerstyle UKULELE Lesson #173: SUN OF JAMAICA (Goombay Dance Band)
+https://www.youtube.com/watch?v=_M5NGrKoiK8
+
+Fingerstyle UKULELE Lesson #174: GROW OLD WITH YOU (Adam Sandler)
+https://www.youtube.com/watch?v=-nCoa14yeGQ
+
+Fingerstyle UKULELE Lesson #175: SOMEWHERE OVER THE RAINBOW
+https://www.youtube.com/watch?v=HFK7wJmZ1g4
+
+Fingerstyle UKULELE Lesson #176: CAN YOU FEEL THE LOVE TONIGHT (The Lion King)
+https://www.youtube.com/watch?v=DrKsJLMG770
+
+Fingerstyle UKULELE Lesson #177: I WANNA BE LIKE YOU (The Jungle Book)
+https://www.youtube.com/watch?v=NGCAWQ6Cg1Y
+
+Fingerstyle UKULELE Lesson #178: COUNTRY GARDENS (English Folk Song)
+https://www.youtube.com/watch?v=M45gUZXU-Zc
+
+Fingerstyle UKULELE Lesson #179: DIRTY OLD TOWN (Ewan MacColl)
+https://www.youtube.com/watch?v=UI-_CtwzngE
+
+Fingerstyle UKULELE Lesson #180: MICHAEL ROW THE BOAT ASHORE (Spiritual)
+https://www.youtube.com/watch?v=zpd_Pa6MPMY
+
+Fingerstyle UKULELE Lesson #181: ABIDE WITH ME (Christian Hymn)
+https://www.youtube.com/watch?v=Ocj3KI29jac
+
+Fingerstyle UKULELE Lesson #182: BASKET CASE (Green Day)
+https://www.youtube.com/watch?v=SgjNAG7-QXI
+
+Fingerstyle UKULELE Lesson #183: CALIFORNICATION (Red Hot Chili Peppers)
+https://www.youtube.com/watch?v=itTsNfX74hc
+
+Fingerstyle UKULELE Lesson #184: THE LARK IN THE MORNING (English Folk Song)
+https://www.youtube.com/watch?v=nIa-RKTWDSU
+
+Fingerstyle UKULELE Lesson #185: MENUETT (Johann Krieger)
+https://www.youtube.com/watch?v=8JFmWiLcDoM
+
+Fingerstyle UKULELE Lesson #186: CHARIOTS OF FIRE (Vangelis)
+https://www.youtube.com/watch?v=B_LEImyaX3A
+
+Fingerstyle UKULELE Lesson #187: MARY HAMILTON (Scottish Ballad)
+https://www.youtube.com/watch?v=J536gTslmgY
+
+Fingerstyle UKULELE Lesson #188: STRAYAWAY CHILD (Irish Traditional)
+https://www.youtube.com/watch?v=9Ns3m59YZSM
+
+Fingerstyle UKULELE Lesson #189: SUMMER OF 69 (Bryan Adams)
+https://www.youtube.com/watch?v=tB5DKSmdrZ0
+
+Fingerstyle UKULELE Lesson #190: LA VIE EN ROSE (Edith Piaf)
+https://www.youtube.com/watch?v=eihcNeflPjo
+
+Fingerstyle UKULELE Lesson #191: CHAN CHAN (Buena Vista Social Club)
+https://www.youtube.com/watch?v=39jQ2wPOS0o
+
+Fingerstyle UKULELE Lesson #192: I HAVE A DREAM (ABBA)
+https://www.youtube.com/watch?v=P2MzKgqSaC4
+
+Fingerstyle UKULELE Lesson #193: TEQUILA (The Champs)
+https://www.youtube.com/watch?v=QsXUmioWZmg
+
+Fingerstyle UKULELE Lesson #194: ALL I HAVE TO DO IS DREAM (Everly Brothers)
+https://www.youtube.com/watch?v=cyA86xtE8Fg
+
+Fingerstyle UKULELE Lesson #195: SAMBA PA TI (Carlos Santana)
+https://www.youtube.com/watch?v=MbtS9B4_J4I
+
+Fingerstyle UKULELE Lesson #196: RAINDROPS KEEP FALLING ON MY HEAD (BJ Thomas)
+https://www.youtube.com/watch?v=dTrcD1IWK-c
+
+Fingerstyle UKULELE Lesson #197: BROTHERS IN ARMS (Mark Knopfler/Dire Straits)
+https://www.youtube.com/watch?v=Wz0rDSrtCDM
+
+Fingerstyle UKULELE Lesson #198: MIDNIGHT IN MOSCOW
+https://www.youtube.com/watch?v=JzAP51wlH_M
+
+Fingerstyle UKULELE Lesson #199: MASSACHUSETTS (Bee Gees)
+https://www.youtube.com/watch?v=FlcZf4WS-GA
+
+Fingerstyle UKULELE Lesson #200: SEE YOU AGAIN (Wiz Khalifa ft. Charly Puth)
+https://www.youtube.com/watch?v=ddYsZvRO5-A
