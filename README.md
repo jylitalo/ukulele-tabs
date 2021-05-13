@@ -3,6 +3,7 @@ Curated list of tabs for ukulele
 
 Tabs:
 * [John Lennon: Imagine](./john_lennon/imagine.md)
+* [Happy Birthday](./other/happy_birthday.md)
 
 Video lessons:
 * [Helmut Bicket's Christmas Ukulele Lessons](./helmutbickel_christmas.md)

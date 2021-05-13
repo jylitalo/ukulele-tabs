@@ -4,7 +4,7 @@ https://www.youtube.com/watch?v=_tzVXGpP3qk
 Fingerstyle Ukulele Lesson #2: SCARBOROUGH FAIR (Simon & Garfunkel)
 https://www.youtube.com/watch?v=qhVpMM2pLk4&t=9s
 
-Fingerstyle Ukulele Lesson #3: HAPPY BIRTHDAY
+[Fingerstyle Ukulele Lesson #3: HAPPY BIRTHDAY](other/happy_birthday.md)
 https://www.youtube.com/watch?v=QbOhkOrMkwg
 
 Fingerstyle Ukulele Lesson #4: TWINKLE TWINKLE LITTLE STAR
@@ -212,8 +212,7 @@ https://www.youtube.com/watch?v=Rb-Sy-pDl0Y
 Fingerstyle Ukulele Lesson #73: SUNDAY MORNING (The Velvet Underground)
 https://www.youtube.com/watch?v=ld8uXMf1Z3o
 
-Fingerstyle Ukulele Lesson #74: IMAGINE (John Lennon)
-https://www.youtube.com/watch?v=SsYFY4EZlEo
+[Fingerstyle Ukulele Lesson #74: IMAGINE (John Lennon)](./john_lennon/imagine.md)
 
 Fingerstyle Ukulele Lesson #75: LOSING MY RELIGION (R.E.M)
 https://www.youtube.com/watch?v=HzmsE6eUNqM
