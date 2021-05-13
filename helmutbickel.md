@@ -4,8 +4,7 @@ https://www.youtube.com/watch?v=_tzVXGpP3qk
 Fingerstyle Ukulele Lesson #2: SCARBOROUGH FAIR (Simon & Garfunkel)
 https://www.youtube.com/watch?v=qhVpMM2pLk4&t=9s
 
-[Fingerstyle Ukulele Lesson #3: HAPPY BIRTHDAY](other/happy_birthday.md)
-https://www.youtube.com/watch?v=QbOhkOrMkwg
+[Fingerstyle Ukulele Lesson #3: HAPPY BIRTHDAY](./other/happy_birthday.md)
 
 Fingerstyle Ukulele Lesson #4: TWINKLE TWINKLE LITTLE STAR
 https://www.youtube.com/watch?v=lDTiKYPRo0A
@@ -593,3 +592,294 @@ https://www.youtube.com/watch?v=FlcZf4WS-GA
 
 Fingerstyle UKULELE Lesson #200: SEE YOU AGAIN (Wiz Khalifa ft. Charly Puth)
 https://www.youtube.com/watch?v=ddYsZvRO5-A
+
+Fingerstyle UKULELE Lesson #201: LA CUCARACHA
+https://www.youtube.com/watch?v=XQNyLV7dGBA
+
+Fingerstyle UKULELE Lesson #202: WHEN JOHNNY COMES MARCHING HOME
+https://www.youtube.com/watch?v=ldyKEWzPImU
+
+Fingerstyle UKULELE Lesson #206: I WILL FOLLOW YOU INTO THE DARK (Death Cab For Cutie)
+https://www.youtube.com/watch?v=z3ktUFDhEg8
+
+Fingerstyle UKULELE Lesson #207: YOU RAISE ME UP
+https://www.youtube.com/watch?v=DG0kp-pCga0
+
+Fingerstyle UKULELE Lesson #208: DARK EYES
+https://www.youtube.com/watch?v=atOkOB3WkL8
+
+Fingerstyle UKULELE Lesson #209: YESTERDAY (The Beatles)
+https://www.youtube.com/watch?v=CZAYvTQhjR4
+
+Fingerstyle UKULELE Lesson #210: THE LAST ROSE OF SUMMER
+https://www.youtube.com/watch?v=sEbufnAdibE
+
+Fingerstyle UKULELE Lesson #211: DON'T THINK TWICE IT'S ALL RIGHT (Bob Dylan)
+https://www.youtube.com/watch?v=5wfMRQue4GM
+
+Fingerstyle UKULELE Lesson #212: GET BACK (The Beatles)
+https://www.youtube.com/watch?v=oqTmw8oM_Y0
+
+Fingerstyle UKULELE Lesson #213: HEY JUDE (The Beatles)
+https://www.youtube.com/watch?v=8wAdFdmLGVM
+
+Fingerstyle UKULELE Lesson #214: A HARD DAY'S NIGHT (The Beatles)
+https://www.youtube.com/watch?v=uxXA8YnMObo
+
+Fingerstyle UKULELE Lesson #215: SOMETHING (The Beatles)
+https://www.youtube.com/watch?v=kPCrYxc4QkI
+
+Fingerstyle UKULELE Lesson #216: IF I NEEDED YOU (Townes van Zandt)
+https://www.youtube.com/watch?v=QnXyLNR3A8A
+
+Fingerstyle UKULELE Lesson #217: PAINT IT BLACK (The Rolling Stones)
+https://www.youtube.com/watch?v=kpHwN64dVGs
+
+Fingerstyle UKULELE Lesson #218: ANOTHER BRICK IN THE WALL (Pink Floyd)
+https://www.youtube.com/watch?v=ciuYHq-418w
+
+Fingerstyle UKULELE Lesson #219: NOBODY KNOWS YOU WHEN YOU'RE DOWN AND OUT (Eric Clapton)
+https://www.youtube.com/watch?v=8xMG2UBEg0U
+
+Fingerstyle UKULELE Lesson #220: LA-LE-LU (German Lullaby)
+https://www.youtube.com/watch?v=GRkbuTXgzQU
+
+Fingerstyle UKULELE Lesson #221: GAMES PEOPLE PLAY (Joe South)
+https://www.youtube.com/watch?v=vMa_aXaBI9E
+
+Fingerstyle UKULELE Lesson #222: FACTORY (Bruce Springsteen)
+https://www.youtube.com/watch?v=YMu6fZe-GbY
+
+Fingerstyle UKULELE Lesson #223: MY HOMETOWN (Bruce Springsteen)
+https://www.youtube.com/watch?v=VKfR-cI39Vo
+
+Fingerstyle UKULELE Lesson #224: BOTTLE OF WINE (Tom Paxton)
+https://www.youtube.com/watch?v=pz2j7PFIk_M
+
+Fingerstyle UKULELE Lesson #225: ME AND BOBBY McGEE (Kris Kristofferson)
+https://www.youtube.com/watch?v=z2PL0IRVHTk
+
+Fingerstyle UKULELE Lesson #226: ELEANOR RIGBY (The Beatles)
+https://www.youtube.com/watch?v=Hu78Hxm9gjY
+
+Fingerstyle UKULELE Lesson #227: SMOKE ON THE WATER (Deep Purple)
+https://www.youtube.com/watch?v=U9S5ApcyYeA
+
+Fingerstyle UKULELE Lesson #228: WEISST DU WIEVIEL STERNLEIN STEHEN (German Lullaby)
+https://www.youtube.com/watch?v=OBYz75SGkik
+
+Fingerstyle UKULELE Lesson #229: GUARANTEED (Eddie Vedder)
+https://www.youtube.com/watch?v=AnfkYu9_bZg
+
+Fingerstyle UKULELE Lesson #230: STAND BY ME - Song Accompaniment
+https://www.youtube.com/watch?v=CnvprMQ0gjI
+
+Fingerstyle UKULELE Lesson #231: FOREVER YOUNG (Alphaville)
+https://www.youtube.com/watch?v=_eayTpCHRf4
+
+Fingerstyle UKULELE Lesson #232: HAVE YOU EVER SEEN THE RAIN (CCR)
+https://www.youtube.com/watch?v=EcvhHfccSCU
+
+Fingerstyle UKULELE Lesson #233: 'TIS SO SWEET TO TRUST IN JESUS (Christian Hymn)
+https://www.youtube.com/watch?v=vP9kQ3ydT2E
+
+Fingerstyle UKULELE Lesson #234: I WALK THE LINE (Johnny Cash)
+https://www.youtube.com/watch?v=j0bfjCS1wrg
+
+Fingerstyle UKULELE Lesson #235: THREE LITTLE BIRDS (Bob Marley)
+https://www.youtube.com/watch?v=o5kegfNSbbo
+
+Fingerstyle UKULELE Lesson #236: HURT (Nine Inch Nails/Johnny Cash)
+https://www.youtube.com/watch?v=4m9_XnGN5sE&t=112s
+
+Fingerstyle UKULELE Lesson #237: SUN OF JAMAICA (Goombay Dance Band)
+https://www.youtube.com/watch?v=TxzBIC18Y2M
+
+Fingerstyle UKULELE Lesson #238: WE WILL ROCK YOU (Queen)
+https://www.youtube.com/watch?v=2pSfgRPLPwk
+
+Fingerstyle UKULELE Lesson #239: MARY HAMILTON (Scottish Ballad)
+https://www.youtube.com/watch?v=tsedqQCBG5w
+
+Fingerstyle UKULELE Lesson #240: DANS FISEL (Breton Dance Tune)
+https://www.youtube.com/watch?v=ao8oBhUO_lo
+
+Fingerstyle UKULELE Lesson #241: KALINKA (Russian Song)
+https://www.youtube.com/watch?v=mH7qb1v8UH8
+
+Fingerstyle UKULELE Lesson #242: DIANA (Paul Anka)
+https://www.youtube.com/watch?v=R_sRq6oKaLQ
+
+Fingerstyle UKULELE Lesson #243: THE ROSE (Betty Midler)
+https://www.youtube.com/watch?v=Vu5T_ILQ114
+
+Fingerstyle UKULELE Lesson #244: IRISH WEDDING (Irish Traditional)
+https://www.youtube.com/watch?v=wUYyc3y0yqw
+
+Fingerstyle UKULELE Lesson #245: RODDY McCORLEY (Irish Song)
+https://www.youtube.com/watch?v=BRtqubFd8oI
+
+Fingerstyle UKULELE Lesson #246: RED IS THE ROSE (Irish Traditional)
+https://www.youtube.com/watch?v=3dAxft4eoNQ
+
+Fingerstyle UKULELE Lesson #247: TANGO TO EVORA (Loreena McKennitt)
+https://www.youtube.com/watch?v=suM7BD9ODmM
+
+Fingerstyle UKULELE Lesson #248: EL CONDOR PASA (Peruvian Folk Song)
+https://www.youtube.com/watch?v=5VovZeXzEfs
+
+Fingerstyle UKULELE Lesson #249: BEI MIR BIST DU SCHÖN (Jiddish Song)
+https://www.youtube.com/watch?v=MRaL6bemK4o
+
+Fingerstyle UKULELE Lesson #250: DONAUWALZER (Blue Danube Waltz/Johann Strauss)
+https://www.youtube.com/watch?v=e2vc5ePApus
+
+Fingerstyle UKULELE Lesson #251: ONLY A HOBO (Bob Dylan)
+https://www.youtube.com/watch?v=PRGlT-jXXI8
+
+Fingerstyle UKULELE Lesson #252: ROXBOROUGH CASTLE (Scottish Traditional)
+https://www.youtube.com/watch?v=0p0XSnv9ztE
+
+Fingerstyle UKULELE Lesson #253: ACROSS THE UNIVERSE (The Beatles)
+https://www.youtube.com/watch?v=GfObxOiD2E0
+
+Fingerstyle UKULELE Lesson #254: THE QUIET LAND OF ERIN (Irish Traditional)
+https://www.youtube.com/watch?v=XM276E3bVvc
+
+Fingerstyle UKULELE Lesson #255: TURN TURN TURN (Pete Seeger/The Byrds)
+https://www.youtube.com/watch?v=UppH9pMamow
+
+Fingerstyle UKULELE Lesson #256: LADY D'ARBANVILLE (Cat Stevens)
+https://www.youtube.com/watch?v=ll-so7Ik8us
+
+Fingerstyle UKULELE Lesson #257: SWEET HOME ALABAMA (Lynyrd Skynyrd)
+https://www.youtube.com/watch?v=xBkdC0xfioA
+
+Fingerstyle UKULELE Lesson #258: ZEHN KLEINE JÄGERMEISTER (Die Toten Hosen)
+https://www.youtube.com/watch?v=SEBCweh1TLU
+
+Fingerstyle UKULELE Lesson #259: DER MOND IST AUFGEGANGEN (German Lullaby)
+https://www.youtube.com/watch?v=UB0lTUvqqTg
+
+Fingerstyle UKULELE Lesson #260: THE TIMES THEY ARE A-CHANGIN' (Bob Dylan)
+https://www.youtube.com/watch?v=NHaqTUesq6I
+
+Fingerstyle UKULELE Lesson #261: DEATH OF A CLOWN (Dave Davies/The Kinks)
+https://www.youtube.com/watch?v=966uuEgtJpA
+
+Fingerstyle UKULELE Lesson #262: PENELOPE'S SONG (Loreena McKennitt)
+https://www.youtube.com/watch?v=c92zUIfpbG8
+
+Fingerstyle UKULELE Lesson #263: THE WANDERER (Dion)
+https://www.youtube.com/watch?v=TYAvDt17NtY
+
+Fingerstyle UKULELE Lesson #264: WHISPERING (Jazz Standard)
+https://www.youtube.com/watch?v=yFH3ZByXH2I
+
+Fingerstyle UKULELE Lesson #265: DIE GEDANKEN SIND FREI (German Traditional/Pete Seeger))
+https://www.youtube.com/watch?v=0Txtm2W5uNE
+
+Fingerstyle UKULELE Lesson #266: ALLEMANDE (Medieval Tune)
+https://www.youtube.com/watch?v=xEAG5KEcecs
+
+Fingerstyle UKULELE Lesson #267: DREAM A LITTLE DREAM OF ME (The Mamas And The Papas)
+https://www.youtube.com/watch?v=diNgUoSOHeU
+
+Fingerstyle UKULELE Lesson #268: THE SHEARING'S NOT FOR YOU (Scottish Traditional)
+https://www.youtube.com/watch?v=MQK-7SfdBIQ
+
+Fingerstyle UKULELE Lesson #269: THE SCIENTIST (Coldplay)
+https://www.youtube.com/watch?v=zsBPYwCLZGk
+
+Fingerstyle UKULELE Lesson #270: COUNTRY ROADS (John Denver / PART 1)
+https://www.youtube.com/watch?v=JhOh4f1llU8
+
+Fingerstyle UKULELE Lesson #271: COUNTRY ROADS (John Denver / PART 2)
+https://www.youtube.com/watch?v=htLo65RvjaY
+
+Fingerstyle UKULELE Lesson #272: MY WAY (Frank Sinatra/Main Theme)
+https://www.youtube.com/watch?v=TfNIvAGH5zM
+
+Fingerstyle UKULELE Lesson #273: NEVER ENDING ROAD (Loreena McKennitt)
+https://www.youtube.com/watch?v=9Ia_RNXY4so
+
+Fingerstyle UKULELE Lesson #274: SUNSHINE OF YOUR LOVE (Cream/Eric Clapton)
+https://www.youtube.com/watch?v=fQOZgc3oscY
+
+Fingerstyle UKULELE Lesson #275: OH SUSANNA (Minstrel Song)
+https://www.youtube.com/watch?v=blx8MPTS5DM
+
+Fingerstyle UKULELE Lesson #276: ONE MORE CITY (Colin Wilkie/Hannes Wader)
+https://www.youtube.com/watch?v=Ag7QUleefIA
+
+Fingerstyle UKULELE Lesson #277: EVERY BREATH YOU TAKE (The Police / PART 1)
+https://www.youtube.com/watch?v=CpASUpRdjF8
+
+Fingerstyle UKULELE Lesson #278: EVERY BREATH YOU TAKE (The Police / PART 2)
+https://www.youtube.com/watch?v=STWlv8dwJZM
+
+Fingerstyle UKULELE Lesson #279: WHAT SHALL WE DO WITH A DRUNKEN SAILOR (Shanty)
+https://www.youtube.com/watch?v=FHVSKv9AL2I
+
+Fingerstyle UKULELE Lesson #280: WHEN THE SAINTS GO MARCHING IN (Spiritual)
+https://www.youtube.com/watch?v=ILAdbMpqKP0
+
+Fingerstyle UKULELE Lesson #281: HE'S GOT THE WHOLE WORLD IN HIS HANDS (American Spiritual)
+https://www.youtube.com/watch?v=AXEFis6eyio
+
+Fingerstyle UKULELE Lesson #282: FIVE FOOT TWO, EYES OF BLUE
+https://www.youtube.com/watch?v=Wsgq4slmMJM
+
+Fingerstyle UKULELE Lesson #283: FÜRSTENFELD (STS / PART 1)
+https://www.youtube.com/watch?v=MdcRqsMJ6I8
+
+Fingerstyle UKULELE Lesson #284: FÜRSTENFELD (STS / PART 2)
+https://www.youtube.com/watch?v=svby7pnNujU
+
+Fingerstyle UKULELE Lesson #285: 20th CENTURY FOX FANFARE
+https://www.youtube.com/watch?v=pBPgSFhh7yw
+
+Fingerstyle UKULELE Lesson #286: HARD TIMES (Stephen Foster)
+https://www.youtube.com/watch?v=4132Owg3Zjs
+
+Fingerstyle UKULELE Lesson #287: ROCKIN' ALL OVER THE WORLD (John Fogerty/Status Quo)
+https://www.youtube.com/watch?v=h1vPWswiyxg
+
+Fingerstyle UKULELE Lesson #288: IT'S A HEARTACHE (Bonnie Tyler)
+https://www.youtube.com/watch?v=pCswBsuddrc
+
+Fingerstyle UKULELE Lesson #289: INISHEER (Thomas Walsh)
+https://www.youtube.com/watch?v=oVYhJXQxt50
+
+Fingerstyle UKULELE Lesson #290: HEY HEY, MY MY (Neil Young)
+https://www.youtube.com/watch?v=uex4ZnDrS9U
+
+Fingerstyle UKULELE Lesson #291: BESAME MUCHO (Consuelo Velazquez)
+https://www.youtube.com/watch?v=1Bz4yH944fc
+
+Fingerstyle UKULELE Lesson #292: YES SIR, THAT'S MY BABY
+https://www.youtube.com/watch?v=AwFu8AB21aY
+
+Fingerstyle UKULELE Lesson #293: BLUES RUN THE GAME (Jackson C. Frank)
+https://www.youtube.com/watch?v=9WvQlSpReUo
+
+Fingerstyle UKULELE Lesson #294: COCAINE (J.J. Cale/Eric Clapton)
+https://www.youtube.com/watch?v=SoLfvQfAo9g
+
+Fingerstyle UKULELE Lesson #295: MERCEDES BENZ (Janis Joplin)
+https://www.youtube.com/watch?v=4_HKtGj5IPk
+
+Fingerstyle UKULELE Lesson #296: POMP AND CIRCUMSTANCE (Sir Edward Elgar)
+https://www.youtube.com/watch?v=fgmyoTWNMdo
+
+Fingerstyle UKULELE Lesson #297: THE PARTING GLASS (Scottish Traditional)
+https://www.youtube.com/watch?v=bDQiqko8LZQ
+
+Fingerstyle UKULELE Lesson #298: LOOK WHAT THEY'VE DONE TO MY SONG MA (Melanie)
+https://www.youtube.com/watch?v=9V66Uqf3LU4
+
+Fingerstyle UKULELE Lesson #299: CALIFORNIA DREAMING (The Mamas & The Papas)
+https://www.youtube.com/watch?v=9TtWZqxagMc
+
+Fingerstyle UKULELE Lesson #300: RAINY DAY WOMEN #12 & 35 (Bob Dylan)
+https://www.youtube.com/watch?v=Rbn1OA8amZ4
