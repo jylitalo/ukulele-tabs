@@ -113,6 +113,8 @@ https://www.youtube.com/watch?v=cogk9lDgiBQ
 Fingerstyle Ukulele Lesson #47: BOULEVARD OF BROKEN DREAMS (Green Day)
 https://www.youtube.com/watch?v=z5V156Vuytg
 
+Lesson numbers jump from #47 to #44
+
 Fingerstyle Ukulele Lesson #44: KUMBAYA
 https://www.youtube.com/watch?v=7VPqyAqfhQY
 
@@ -1183,3 +1185,110 @@ https://www.youtube.com/watch?v=Yvb5FAfqPGo
 
 Fingerstyle UKULELE Lesson #400: ANDANTINO (Matteo Carcassi)
 https://www.youtube.com/watch?v=olkKjfdhr9U
+
+Fingerstyle UKULELE Lesson #401: JOLLY OLD SAINT NICHOLAS (Christmas Carol)
+https://www.youtube.com/watch?v=e9T0Nj2tacg
+
+Fingerstyle UKULELE Lesson #402: HAPPY DAYS ARE HERE AGAIN (Milton Ager)
+https://www.youtube.com/watch?v=Yiz6dSBWMxQ
+
+Fingerstyle UKULELE Lesson #403: JOY TO THE WORLD (Christmas Carol)
+https://www.youtube.com/watch?v=LdqdE-BHIt0
+
+Fingerstyle UKULELE Lesson #404: GOOD KING WENCESLAS (Christmas Carol)
+https://www.youtube.com/watch?v=ZvbOmRNXiEs
+
+Fingerstyle UKULELE Lesson #405: WHITE CHRISTMAS (Bing Crosby)
+https://www.youtube.com/watch?v=leScupHLluY
+
+Fingerstyle UKULELE Lesson #406: STOP THE CAVALRY (Jona Lewie)
+https://www.youtube.com/watch?v=tpNNvQLmjTs
+
+Fingerstyle UKULELE Lesson #407: GODDESSES (Country Dance/John Playford)
+https://www.youtube.com/watch?v=N26do3hMyXU
+
+Fingerstyle UKULELE Lesson #408: JINGLE BELLS
+https://www.youtube.com/watch?v=DI0wPXqstuI
+
+Fingerstyle UKULELE Lesson #409: FELIZ NAVIDAD (Jose Feliciano)
+https://www.youtube.com/watch?v=ylCkNp2LKMY
+
+Fingerstyle UKULELE Lesson #410: HIROSHIMA (Wishful Thinking)
+https://www.youtube.com/watch?v=gsi5ityIioE
+
+Fingerstyle UKULELE Lesson #411: HAVA NAGILA (Hebrew Folksong)
+https://www.youtube.com/watch?v=5DvATueDYXA
+
+Fingerstyle UKULELE Lesson #412: FLYING THROUGH THE AIR (Oliver Onions)
+https://www.youtube.com/watch?v=lS2VHQ4PvNY
+
+Fingerstyle UKULELE Lesson #413: ADESTE FIDELES (O Come All Ye Faithful)
+https://www.youtube.com/watch?v=T6YHOvzpoeQ
+
+Fingerstyle UKULELE Lesson #414: OH SUSANNA (Stephen Foster)
+https://www.youtube.com/watch?v=1l-uy-rarho
+
+Lesson #415 doesn't seem to exist.
+
+Fingerstyle UKULELE Lesson # 416: IT'S MY LIFE (Bon Jovi)
+https://www.youtube.com/watch?v=WaJYmGYRMSI
+
+Fingerstyle UKULELE Lesson # 417: THE RISING OF THE MOON (Irish Ballad)
+https://www.youtube.com/watch?v=Nrc8vt4W7kk
+
+Fingerstyle UKULELE Lesson # 418: TI AMO (Umberto Tozzi)
+https://www.youtube.com/watch?v=vah7NCQmY_g
+
+Fingerstyle UKULELE Lesson # 419: SUMM SUMM SUMM (Children's Song)
+https://www.youtube.com/watch?v=YObDX_PiN_I
+
+Fingerstyle UKULELE Lesson # 420: EARLY MORNING RAG
+https://www.youtube.com/watch?v=X3TLhLN1v7k
+
+Fingerstyle UKULELE Lesson # 421: DON'T WORRY, BE HAPPY (Bobby McFerrin)
+https://www.youtube.com/watch?v=nZtl5kh5eXc
+
+Fingerstyle UKULELE Lesson # 422: DOVE'S FIGARY (English Country Dance)
+https://www.youtube.com/watch?v=36RL-MHf0LA
+
+Fingerstyle UKULELE Lesson # 423: FOREVER YOUNG (Bob Dylan / Fast Version)
+https://www.youtube.com/watch?v=qexfnT6cP_A
+
+Fingerstyle UKULELE Lesson # 424: THE WILD ROVER (Irish Traditional)
+https://www.youtube.com/watch?v=UnwmrZmDskw
+
+Fingerstyle UKULELE Lesson # 425: WITH GOD ON OUR SIDE (Bob Dylan)
+https://www.youtube.com/watch?v=WK84Qj-7Vjg
+
+Fingerstyle UKULELE Lesson # 426: I'LL TELL ME MA (Traditional)
+https://www.youtube.com/watch?v=OJ8CzbaJks0
+
+Fingerstyle UKULELE Lesson # 427: MAIRI'S WEDDING (Scottish Folk Song)
+https://www.youtube.com/watch?v=HOo49Ssm2lg
+
+Fingerstyle UKULELE Lesson # 428: DOWN ON THE CORNER (Creedence Clearwater Revival)
+https://www.youtube.com/watch?v=cD4B9YfE6po
+
+Fingerstyle UKULELE Lesson # 429: CRIPPLE CREEK (Appalachian Folk Song)
+https://www.youtube.com/watch?v=KHP0as-6_Ww
+
+Fingerstyle UKULELE Lesson # 430: WER HAT AN DER UHR GEDREHT? (Paulchen PantherTheme Song)
+https://www.youtube.com/watch?v=WygeMLBW28Y
+
+Fingerstyle UKULELE Lesson # 431: BUDAPEST (George Ezra)
+https://www.youtube.com/watch?v=M6l4BspVn-M
+
+Fingerstyle UKULELE Lesson # 432: O SOLE MIO / IT'S NOW OR NEVER (Traditional/Elvis Presley)
+https://www.youtube.com/watch?v=oje5YOVprLE
+
+Fingerstyle UKULELE Lesson # 433: SHADY GROVE (Appalachian Folk Song)
+https://www.youtube.com/watch?v=NGunZJpFIWo
+
+Fingerstyle UKULELE Lesson # 434: DEVOTED TO YOU (The Everly Brothers)
+https://www.youtube.com/watch?v=qpNmmL1HLzk
+
+Fingerstyle UKULELE Lesson # 435: RIDERS ON THE STORM (The Doors)
+https://www.youtube.com/watch?v=XiMIJeIXnWM
+
+Fingerstyle UKULELE Lesson # 436: ROCK MY SOUL (Gospel Song)
+https://www.youtube.com/watch?v=OKz_0yKEKu0
