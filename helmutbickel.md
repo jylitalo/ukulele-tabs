@@ -883,3 +883,153 @@ https://www.youtube.com/watch?v=9TtWZqxagMc
 
 Fingerstyle UKULELE Lesson #300: RAINY DAY WOMEN #12 & 35 (Bob Dylan)
 https://www.youtube.com/watch?v=Rbn1OA8amZ4
+
+Fingerstyle UKULELE Lesson #301: WHERE HAVE ALL THE FLOWERS GONE (Pete Seeger)
+https://www.youtube.com/watch?v=uySJVzpc3Ig
+
+Fingerstyle UKULELE Lesson #302: APACHE (The Shadows)
+https://www.youtube.com/watch?v=cz1SLJt18v8
+
+Fingerstyle UKULELE Lesson #303: I SHOT THE SHERIFF (Bob Marley/Eric Clapton)
+https://www.youtube.com/watch?v=PblbSSXahhI
+
+Fingerstyle UKULELE Lesson #304: CAN'T BUY ME LOVE (The Beatles)
+https://www.youtube.com/watch?v=qNMfPRdvFms
+
+Fingerstyle UKULELE Lesson #305: ALL MY LOVING (The Beatles)
+https://www.youtube.com/watch?v=86lzFXyau6c
+
+Fingerstyle UKULELE Lesson #306: TOM'S DINER (Suzanne Vega)
+https://www.youtube.com/watch?v=lS3K2JfHS7o
+
+Fingerstyle UKULELE Lesson #307: YOU CAN'T ALWAYS GET WHAT YOU WANT (The Rolling Stones)
+https://www.youtube.com/watch?v=yRtDCqHE4Ww
+
+Fingerstyle UKULELE Lesson #308: SUMMERTIME BLUES (Eddie Cochran)
+https://www.youtube.com/watch?v=2rSIXSjeh4Y
+
+Fingerstyle UKULELE Lesson #309: IF YOU'RE HAPPY AND YOU KNOW IT (Children Song)
+https://www.youtube.com/watch?v=c4z1lPftBvY
+
+Fingerstyle UKULELE Lesson #310: COME TOGETHER (The Beatles)
+https://www.youtube.com/watch?v=Ok4JbWifi1Y
+
+Fingerstyle UKULELE Lesson #311: CHATTANOOGA CHOO CHOO (Glen Miller)
+https://www.youtube.com/watch?v=gEnEtrsNr0c
+
+Fingerstyle UKULELE Lesson #312: AGADOO (Black Lace)
+https://www.youtube.com/watch?v=UD7KB9Qb0ao
+
+Fingerstyle UKULELE Lesson #313: RING OF FIRE (Johnny Cash)
+https://www.youtube.com/watch?v=rM6Ej78m_U0
+
+Fingerstyle UKULELE Lesson #314: ALLE MEINE ENTCHEN (Children Song)
+https://www.youtube.com/watch?v=jZHegO4zvUA
+
+Fingerstyle UKULELE Lesson #315: MARRY YOU (Bruno Mars)
+https://www.youtube.com/watch?v=ZhKkWKoHGlk
+
+Fingerstyle UKULELE Lesson #316: LA DONNA E MOBILE (Guiseppe Verdi)
+https://www.youtube.com/watch?v=0uEg5hmktFc
+
+Fingerstyle UKULELE Lesson #317: LIKE A HURRICANE (Neil Young)
+https://www.youtube.com/watch?v=yqgJveSr1cM
+
+Fingerstyle UKULELE Lesson #318: STRANGERS IN THE NIGHT
+https://www.youtube.com/watch?v=z1q2ZiJie1A
+
+Fingerstyle UKULELE Lesson #319: THE GODFATHER (Love Theme)
+https://www.youtube.com/watch?v=i8PrLQ9CrdY
+
+Fingerstyle UKULELE Lesson #320: WE ARE THE WORLD (USA for Africa)
+https://www.youtube.com/watch?v=cAjdgyyJiEA
+
+Fingerstyle UKULELE Lesson #321: DA DOO RON RON (The Crystals)
+https://www.youtube.com/watch?v=ovayInqnSSM
+
+Fingerstyle UKULELE Lesson #322: MIDNIGHT SPECIAL (Traditional)
+https://www.youtube.com/watch?v=S9mzpdmlB4w
+
+Fingerstyle UKULELE Lesson #323: FATHER & SON (Cat Stevens)
+https://www.youtube.com/watch?v=bQDQetQzAZQ
+
+Fingerstyle UKULELE Lesson #324: BANKS OF THE OHIO (Traditional)
+https://www.youtube.com/watch?v=vdp5Xi5BmTc
+
+Fingerstyle UKULELE Lesson #325: DANSE BRANDEBOURGEOISE (Anonym)
+https://www.youtube.com/watch?v=aeFpQwtPQcg
+
+Fingerstyle UKULELE Lesson #326: THE BANANA BOAT SONG ("Day-O"/Harry Belafonte)
+https://www.youtube.com/watch?v=aeri36sV_L4
+
+Fingerstyle UKULELE Lesson #327: ISN'T SHE LOVELY (Stevie Wonder)
+https://www.youtube.com/watch?v=hrnD4PeK2AU
+
+Fingerstyle UKULELE Lesson #328: THE HIGHLAND BOAT SONG (Scottish Traditional)
+https://www.youtube.com/watch?v=cZgVNvGRKuQ
+
+Fingerstyle UKULELE Lesson #329: SANTA LUCIA (Neapolitan Traditional)
+https://www.youtube.com/watch?v=PAe9ec5Sk4o
+
+Fingerstyle UKULELE Lesson #330: AMOI SEG' MA UNS WIEDER (PART 1)
+https://www.youtube.com/watch?v=ZzpE6aQkq7w
+
+Fingerstyle UKULELE Lesson #331: AMOI SEG' MA UNS WIEDER (PART 2)
+https://www.youtube.com/watch?v=xxbxQrMhfhQ
+
+Fingerstyle UKULELE Lesson #332: FIRST BLUES
+https://www.youtube.com/watch?v=lH7Qjem567w
+
+Fingerstyle UKULELE Lesson #333: MY CREOLE BELLE (Mississippi John Hurt)
+https://www.youtube.com/watch?v=lPh-QvBMV2I
+
+Fingerstyle UKULELE Lesson #334: NO EXPECTATIONS (The Rolling Stones)
+https://www.youtube.com/watch?v=DA7YDyilYQc
+
+Fingerstyle UKULELE Lesson #335: YELLOW SUBMARINE (The Beatles)
+https://www.youtube.com/watch?v=Fc7voQCcIUo
+
+Fingerstyle UKULELE Lesson #336: EINE INSEL MIT ZWEI BERGEN (Das Lummerland-Lied)
+https://www.youtube.com/watch?v=027wSsiFJEg
+
+Fingerstyle UKULELE Lesson #337: MALAIKA (Miriam Makeba)
+https://www.youtube.com/watch?v=3HCHOvE3hJQ
+
+Fingerstyle UKULELE Lesson #338: SAFE AND SOUND (Taylor Swift)
+https://www.youtube.com/watch?v=lNEWnaLETpw
+
+Fingerstyle UKULELE Lesson #339: SPANISH HARLEM (Ben E. King)
+https://www.youtube.com/watch?v=AZn3tCR1-14
+
+Fingerstyle UKULELE Lesson #340: OCTOPUS'S GARDEN (The Beatles)
+https://www.youtube.com/watch?v=UCXnZlcM7k8
+
+Fingerstyle UKULELE Lesson #341: BYE BYE LOVE (The Everly Brothers)
+https://www.youtube.com/watch?v=BNu_hDUbRi0
+
+Fingerstyle UKULELE Lesson #342: HUNGRY HEART (Bruce Springsteen)
+https://www.youtube.com/watch?v=3lVO4mw20fE
+
+Fingerstyle UKULELE Lesson #343: MARV PONTKALLEG (Traditional)
+https://www.youtube.com/watch?v=7CMCN2O3oTM
+
+Fingerstyle UKULELE Lesson #344: SUMMER WINE (Nancy Sinatra/Lana Del Ray)
+https://www.youtube.com/watch?v=3dukaGGUqkM
+
+Fingerstyle UKULELE Lesson #345: STILL THE SAME (Bob Seger)
+https://www.youtube.com/watch?v=kzkOljDpk4Y
+
+Fingerstyle UKULELE Lesson #346: KOROBEINIKI (TETRIS-THEME)
+https://www.youtube.com/watch?v=HS5LJ-XjeUs
+
+Fingerstyle UKULELE Lesson #347: VAN DIEMEN'S LAND (U2)
+https://www.youtube.com/watch?v=_aLQmW4F_aA
+
+Fingerstyle UKULELE Lesson #348: THE END OF THE WORLD (Skeeter Davis)
+https://www.youtube.com/watch?v=q40vK6sgeF4
+
+Fingerstyle UKULELE Lesson #349: BUCKDANCER'S CHOICE (Sam McGee)
+https://www.youtube.com/watch?v=pdn5jd7O29g
+
+Fingerstyle UKULELE Lesson #350: DEMONS (Imagine Dragons)
+https://www.youtube.com/watch?v=V__il-1qCZM
