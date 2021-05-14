@@ -1033,3 +1033,153 @@ https://www.youtube.com/watch?v=pdn5jd7O29g
 
 Fingerstyle UKULELE Lesson #350: DEMONS (Imagine Dragons)
 https://www.youtube.com/watch?v=V__il-1qCZM
+
+Fingerstyle UKULELE Lesson #351: IN THE ARMY NOW (Status Quo)
+https://www.youtube.com/watch?v=HE2Mryp62E0
+
+Fingerstyle UKULELE Lesson #352: SEASONS IN THE SUN (Terry Jacks)
+https://www.youtube.com/watch?v=22HOZ5GncLo
+
+Fingerstyle UKULELE Lesson #353: MARMOR, STEIN UND EISEN BRICHT (Drafi Deutscher)
+https://www.youtube.com/watch?v=UbzwlQp9_xQ
+
+Fingerstyle UKULELE Lesson #354: ALS ICH FORTGING (Dirk Michaelis/Karussell)
+https://www.youtube.com/watch?v=poqdeJYC8xA
+
+Fingerstyle UKULELE Lesson #355: HEUTE HIER, MORGEN DORT (Hannes Wader)
+https://www.youtube.com/watch?v=4TrbM7giVTk
+
+Fingerstyle UKULELE Lesson #356: BONANZA (Theme Song)
+https://www.youtube.com/watch?v=lp5xZodeegU
+
+Fingerstyle UKULELE Lesson #357: MULL OF KINTYRE (Paul McCartney/Wings)
+https://www.youtube.com/watch?v=gI9_Y0xTOXY
+
+Fingerstyle UKULELE Lesson #358: THE PASSENGER (Iggy Pop)
+https://www.youtube.com/watch?v=D7c6LvmDkHw
+
+Fingerstyle UKULELE Lesson #359: GANGSTA'S PARADISE (Coolio)
+https://www.youtube.com/watch?v=6aBUYHKs6P8
+
+Fingerstyle UKULELE Lesson #360: BARBARA ANN (The Beach Boys)
+https://www.youtube.com/watch?v=lCpJvrZYMSA
+
+Fingerstyle UKULELE Lesson #361: LEMON'S BLUES (Traditional)
+https://www.youtube.com/watch?v=ykFRG3ckcyA
+
+Fingerstyle UKULELE Lesson #362: USE SOMEBODY (Kings Of Leon)
+https://www.youtube.com/watch?v=MArzsj95Psg
+
+Fingerstyle UKULELE Lesson #363: MINUET IN F (Anonym)
+https://www.youtube.com/watch?v=WODTEb7efM0
+
+Fingerstyle UKULELE Lesson #364: MY HEART WILL GO ON (Titanic Theme Song)
+https://www.youtube.com/watch?v=rUancUa5hT8
+
+Fingerstyle UKULELE Lesson #365: THE SKYE BOAT SONG (Outlander Theme Song)
+https://www.youtube.com/watch?v=-txrPQf8MQw
+
+Fingerstyle UKULELE Lesson #366: TE DEUM ( Marc-Antoine Charpentier)
+https://www.youtube.com/watch?v=VIM4DmqedEc
+
+Fingerstyle UKULELE Lesson #367: BOAT ON THE RIVER (Styx)
+https://www.youtube.com/watch?v=Rej2wepbO8A
+
+Fingerstyle UKULELE Lesson #368: ANDANTINO (Joseph Küffner)
+https://www.youtube.com/watch?v=fPuJQ08tvx4
+
+Fingerstyle UKULELE Lesson #369: ONCE I LOVED A MAIDEN FAIR (John Playford)
+https://www.youtube.com/watch?v=Nt9ygS03sPY
+
+Fingerstyle UKULELE Lesson #370: BLACK OR WHITE (Michael Jackson)
+https://www.youtube.com/watch?v=eizrgCRFn3A
+
+Fingerstyle UKULELE Lesson #371: AU CLAIR DE LA LUNE (French Children Song)
+https://www.youtube.com/watch?v=6jceD2WDv9E
+
+Fingerstyle UKULELE Lesson #372: IT'S ALL OVER NOW, BABY BLUE (Bob Dylan)
+https://www.youtube.com/watch?v=UcEArYwTyyQ
+
+Fingerstyle UKULELE Lesson #373: NONESUCH (Rennaissance Dance Tune)
+https://www.youtube.com/watch?v=shv6djSRJM8
+
+Fingerstyle UKULELE Lesson #374: MEMORIES (Maroon 5)
+https://www.youtube.com/watch?v=8XFZwooAXpM
+
+Fingerstyle UKULELE Lesson #375: FALADEIRA
+https://www.youtube.com/watch?v=usAgBm18fBA
+
+Fingerstyle UKULELE Lesson #376: BALLADE (Erik Marchelie)
+https://www.youtube.com/watch?v=1aP--1OIrWc
+
+Fingerstyle UKULELE Lesson #377: WHEN THE SHIP COMES IN (Bob Dylan)
+https://www.youtube.com/watch?v=UK7MUPdG1_w
+
+Fingerstyle UKULELE Lesson #378: ADAGIO (Johann Kaspar Mertz)
+https://www.youtube.com/watch?v=0KJO1VMos-g
+
+Fingerstyle UKULELE Lesson #379: CANARY DANCE (J. van den Hove)
+https://www.youtube.com/watch?v=JbrGsJ36sFw
+
+Fingerstyle UKULELE Lesson #380: GUTEN ABEND, GUTE NACHT (Johannes Brahms/Lullaby)
+https://www.youtube.com/watch?v=YRe_F55QRes
+
+Fingerstyle UKULELE Lesson #381: ONLY YOU (The Flying Pickets)
+https://www.youtube.com/watch?v=JQfYoAnUI3g
+
+Fingerstyle UKULELE Lesson #382: HUSH LITTLE BABY (Traditional Lullaby)
+https://www.youtube.com/watch?v=MjL7Q1mz7_w
+
+Fingerstyle UKULELE Lesson #383: THE FRENCH SONG (Lucille Starr)
+https://www.youtube.com/watch?v=gcs9TqzXObg
+
+Fingerstyle UKULELE Lesson #384: ROCK AROUND THE CLOCK (Bill Haley & His Comets)
+https://www.youtube.com/watch?v=CK4qU7iCWog
+
+Fingerstyle UKULELE Lesson #385: EDELWEISS (The Sound Of Music)
+https://www.youtube.com/watch?v=kR0WkVuECBw
+
+Fingerstyle UKULELE Lesson #386: CANTORIA
+https://www.youtube.com/watch?v=_bkmpb18XXY
+
+Fingerstyle UKULELE Lesson #387: WIEGENLIED (Wolfgang Amadeus Mozart)
+https://www.youtube.com/watch?v=MaXgvtWAFrM
+
+Fingerstyle UKULELE Lesson #388: SOMEWHERE ONLY WE KNOW (Keane)
+https://www.youtube.com/watch?v=dmcDmaE05eI
+
+Fingerstyle UKULELE Lesson #389: DIE FORELLE (Franz Schubert)
+https://www.youtube.com/watch?v=tYj4G-S531A
+
+Fingerstyle UKULELE Lesson #390: AUTUMN/HERBST (Vivaldi / Four Seasons)
+https://www.youtube.com/watch?v=yfs1FWhmKOM
+
+Fingerstyle UKULELE Lesson #391: GIVE PEACE A CHANCE (John Lennon)
+https://www.youtube.com/watch?v=AsmTRD9dOwE
+
+Fingerstyle UKULELE Lesson #392: DANCE ME TO THE END OF LOVE (Leonard Cohen)
+https://www.youtube.com/watch?v=v55aQev30lo
+
+Fingerstyle UKULELE Lesson #393: CRYING IN THE RAIN (The Everly Brothers)
+https://www.youtube.com/watch?v=r-IuC4zs2hI
+
+Fingerstyle UKULELE Lesson #394: DOWN BY THE RIVERSIDE (Gospelsong)
+https://www.youtube.com/watch?v=c2fsnvU3akY
+
+Fingerstyle UKULELE Lesson #395: BE-BOP-A-LULA (Gene Vincent)
+https://www.youtube.com/watch?v=sTyivTFa-og
+
+Fingerstyle UKULELE Lesson #396: DEUTSCHE NATIONALHYMNE (Kaiserquartett / Joseph Haydn)
+https://www.youtube.com/watch?v=xBYsXOnt0tE
+
+Fingerstyle UKULELE Lesson #397: FOUR STRONG WINDS (Ian & Sylvia)
+https://www.youtube.com/watch?v=6KWfb5In6Ig
+
+Fingerstyle UKULELE Lesson #398: LODI (Creedence Clearwater Revival)
+https://www.youtube.com/watch?v=n5sffMawX24
+
+Fingerstyle UKULELE Lesson #399: DOWN BY THE RIVER (Albert Hammond)
+https://www.youtube.com/watch?v=Yvb5FAfqPGo
+
+Fingerstyle UKULELE Lesson #400: ANDANTINO (Matteo Carcassi)
+https://www.youtube.com/watch?v=olkKjfdhr9U
