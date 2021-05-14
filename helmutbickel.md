@@ -1,1294 +1,435 @@
-Lesson #1: BOOKENDS (Paul Simon)
-https://www.youtube.com/watch?v=_tzVXGpP3qk
-
-Lesson #2: SCARBOROUGH FAIR (Simon & Garfunkel)
-https://www.youtube.com/watch?v=qhVpMM2pLk4&t=9s
-
-[Lesson #3: HAPPY BIRTHDAY](./other/happy_birthday.md)
-
-Lesson #4: TWINKLE TWINKLE LITTLE STAR
-https://www.youtube.com/watch?v=lDTiKYPRo0A
-
-Lesson #5: GUTEN ABEND, GUTE NACHT (Brahms Lullaby)
-https://www.youtube.com/watch?v=AN8oMWdppG0
-
-Lesson #6: MISTER SANDMAN
-https://www.youtube.com/watch?v=-LM4cs6FLNM
-
-Lesson #7: FOUR SEASONS (Antonio Vivaldi)
-https://www.youtube.com/watch?v=O5vfiDRmw30
-
-Lesson #8: NORWEGIAN WOOD ( The Beatles)
-https://www.youtube.com/watch?v=GcSUi6pI-JA
-
-Lesson #9: AND I LOVE HER (The Beatles)
-https://www.youtube.com/watch?v=mZcfQ34tgBo
-
-Lesson #10: FARE THEE WELL/THE LEAVING OF LIVERPOOL
-https://www.youtube.com/watch?v=AlXwuGsOT6Q
-
-Lesson #11: YOU ARE NOT ALONE (Michael Jackson)
-https://www.youtube.com/watch?v=OduIKsaEszw
-
-Lesson #12: WE SHALL OVERCOME
-https://www.youtube.com/watch?v=xsyw9ljJJxo
-
-Lesson #13: AULD LANG SYNE
-https://www.youtube.com/watch?v=y3drAJ4t3GQ
-
-Lesson #14: MUSS I DENN/WOODEN HEART
-https://www.youtube.com/watch?v=D4SzFe9r5ec
-
-Lesson #15: MORNING HAS BROKEN (Cat Stevens)
-https://www.youtube.com/watch?v=035Jixlvo-8
-
-Lesson #16: WITH A LITTLE HELP FROM MY FRIENDS (The Beatles)
-https://www.youtube.com/watch?v=zOvbJQBLTJM
-
-Lesson #17: SLOOP JOHN B: (The Beach Boys)
-https://www.youtube.com/watch?v=xfM4fYnTGtk
-
-Lesson #18: 21 GUNS (Green Day)
-https://www.youtube.com/watch?v=q-ItUDFvGsI
-
-Lesson #19: SACCO & VANZETTI/HERE'S TO YOU
-https://www.youtube.com/watch?v=AeMQKoTlUFI
-
-Lesson #20: MAKE YOU FEEL MY LOVE (Bob Dylan)
-https://www.youtube.com/watch?v=0-hCGsINXkc
-Make You Feel My Love - Played At The DEAD SEA (Israel/Jordan/Palestine) - Ukulele Fingerstyle Solo
-https://www.youtube.com/watch?v=7REEWYjyjy4
-
-Lesson #21: GOING HOME (Antonin Dvorak)
-https://www.youtube.com/watch?v=pe91hY3RtKo
-
-Lesson #22: DOWN BY THE SALLY GARDENS
-https://www.youtube.com/watch?v=9PPuJwaE-98
-
-Lesson #23: STREETS OF LONDON (Ralph McTell)
-https://www.youtube.com/watch?v=xM9fzYBgEAc
-
-Lesson #24: LOVE IS ALL AROUND (The Troggs/Wet Wet Wet)
-https://www.youtube.com/watch?v=VHw5QT0JpZY
-
-Lesson #25: BROTHER SUN & SISTER MOON (Donovan)
-https://www.youtube.com/watch?v=WC9cTTKpx-I
-
-Lesson #26: HAM KUMMST (Seiler & Speer) - Akkorde/Zupfmuster
-https://www.youtube.com/watch?v=No0NUXlL584
-
-Lesson #27: STAIRWAY TO HEAVEN (Led Zeppelin)
-https://www.youtube.com/watch?v=5VHht3el-LQ
-
-Lesson #28: WAKE ME UP WHEN SEPTEMBER ENDS (Green Day)
-https://www.youtube.com/watch?v=_PCOVzGoNVI
-
-Lesson #29: PUFF THE MAGIC DRAGON (Peter, Paul & Mary)
-https://www.youtube.com/watch?v=s6kT09-gQxo
-
-Lesson #30: LADY IN BLACK (Uriah Heep)
-https://www.youtube.com/watch?v=w5cmiUa6jGY
-
-Lesson #31: AS TEARS GO BY (The Rolling Stones)
-https://www.youtube.com/watch?v=LR7-3GaBIIg
-
-Lesson #32: FEELIN' GROOVY (Simon & Garfunkel)
-https://www.youtube.com/watch?v=SrRBx9ohrl4
-
-Lesson #33: LET HER GO (Passenger)
-https://www.youtube.com/watch?v=Q52xIaKeIUo
-
-Lesson #34: MAD WORLD (Gary Jules)
-https://www.youtube.com/watch?v=OPdg2IttXUU
-
-Lesson #44: YOU ARE MY SUNSHINE
-https://www.youtube.com/watch?v=ldjXmhmsggM
-
-Lesson #45: HEART OF GOLD (Neil Young)
-https://www.youtube.com/watch?v=IuxaOijL-wk
-
-Lesson #46: I'LL FLY AWAY
-https://www.youtube.com/watch?v=cogk9lDgiBQ
-
-Lesson #47: BOULEVARD OF BROKEN DREAMS (Green Day)
-https://www.youtube.com/watch?v=z5V156Vuytg
-
-Lesson numbers jump from #47 to #44
-
-Lesson #44: KUMBAYA
-https://www.youtube.com/watch?v=7VPqyAqfhQY
-
-Lesson #45: STILL, STILL, STILL (Austrian Lullaby)
-https://www.youtube.com/watch?v=YVCZwNnq8JU
-CHRISTMAS Ukulele #11: STILL, STILL, STILL
-https://www.youtube.com/watch?v=GznDrtAggfU
-
-Lesson #46: LILI MARLEEN
-https://www.youtube.com/watch?v=zdPSLcyAygQ
-
-Lesson #47: WILD MOUNTAIN THYME (Scotish Traditional)
-https://www.youtube.com/watch?v=RXyDQudbHcs
-
-Lesson #48: ZOMBIE (The Cranberries)
-https://www.youtube.com/watch?v=Q_9InRZ6xMg
-
-Lesson #49: THIS LAND IS YOUR LAND
-https://www.youtube.com/watch?v=xgkTi7N_0sk
-
-Lesson #50: MARY'S BOY CHILD
-https://www.youtube.com/watch?v=smV6NQUKRq4
-MARY'S BOY CHILD - Fingerstyle Ukulele
-https://www.youtube.com/watch?v=M2sppADkSc4
-
-Lesson #51: DONNA DONNA
-https://www.youtube.com/watch?v=5_PcpAy4qtA
-
-Lesson #52: GREENSLEEVES
-https://www.youtube.com/watch?v=iNUKG5FhYus
-
-Lesson #53: SOUND OF SILENCE (Simon & Garfunkel)
-https://www.youtube.com/watch?v=UYm-NzQL1gE
-THE SOUND OF SILENCE (Simon & Garfunkel) - Fingerstyle Ukulele
-https://www.youtube.com/watch?v=xReb7IedafQ
-
-Lesson #54: WHY WORRY (Mark Knopfler/Dire Straits)
-https://www.youtube.com/watch?v=JLp2GkAHqTA
-
-Lesson #55: FOR HE'S A JOLLY GOOD FELLOW
-https://www.youtube.com/watch?v=qpOFKWdt2CU
-
-Lesson #56: BLOWING IN THE WIND (Bob Dylan)
-https://www.youtube.com/watch?v=2m-cD2ZvJKw
-
-Lesson #57: 500 MILES (AWAY FROM HOME)
-https://www.youtube.com/watch?v=Xyq99ywah3A
-
-Lesson #58: FREIGHT TRAIN
-https://www.youtube.com/watch?v=rJAlJcLQOcg
-
-Lesson #59: LOCH LOMOND
-https://www.youtube.com/watch?v=ltADwPA_rxc
-
-Lesson #60: WHISKEY IN THE JAR
-https://www.youtube.com/watch?v=MJwvsrWTG_8
-
-Lesson #61: HOUSE OF THE RISING SUN
-https://www.youtube.com/watch?v=Xgq3A5UkR6Q
-
-Lesson #62: EINE KLEINE NACHTMUSIK (Wolfgang Amadeus Mozart)
-https://www.youtube.com/watch?v=60HJksoiQwI
-
-Lesson #63: THIS OLD MAN
-https://www.youtube.com/watch?v=8ZUQEVU5CDI
-
-Lesson #64: LANG, LANG IST'S HER (LONG, LONG AGO)
-https://www.youtube.com/watch?v=v4RG0BN3Cp8
-
-Lesson #65: TOM DOOLEY
-https://www.youtube.com/watch?v=PUXkLlmNcX0
-
-Lesson #66: ISLAND IN THE SUN (Harry Belafonte)
-https://www.youtube.com/watch?v=Z91bu7iiK68
-
-Lesson #67: FÜR ELISE (Ludwig van Beethoven)
-https://www.youtube.com/watch?v=50uFJLLcAMI
-
-Lesson #68: MOONLIGHT SHADOW (Mike Oldfield)
-https://www.youtube.com/watch?v=mgvfrBcleQ0
-
-Lesson #69: WILL THE CIRCLE BE UNBROKEN
-https://www.youtube.com/watch?v=g7u5wYlCYk8
-
-Lesson #70: FREE FALLIN' (Tom Petty)
-https://www.youtube.com/watch?v=M5u3NdERYrc
-
-Lesson #71: FIELDS OF GOLD
-https://www.youtube.com/watch?v=c9Q9Dbj2xs4
-Fields Of Gold (Sting) - Fingerstyle Ukulele / WALDVIERTEL #6
-https://www.youtube.com/watch?v=hs4f63oB3CE
-
-Lesson #72: SAILING (Rod Stewart)
-https://www.youtube.com/watch?v=Rb-Sy-pDl0Y
-
-Lesson #73: SUNDAY MORNING (The Velvet Underground)
-https://www.youtube.com/watch?v=ld8uXMf1Z3o
-
-[Lesson #74: IMAGINE (John Lennon)](./john_lennon/imagine.md)
-
-Lesson #75: LOSING MY RELIGION (R.E.M)
-https://www.youtube.com/watch?v=HzmsE6eUNqM
-
-Lesson #76: LIGHT MY FIRE (The Doors)
-https://www.youtube.com/watch?v=5-koLl-oBBc
-
-Lesson #77: LA SERENISSIMA (Loreena McKennitt)
-https://www.youtube.com/watch?v=THon-ke7lVA
-La Serenissima (Loreena McKennitt) - Fingerstyle Ukulele
-https://www.youtube.com/watch?v=X34GpIZt5d8
-
-Lesson #78: BAD MOON RISING (CCR)
-https://www.youtube.com/watch?v=vdFlVHdCaHo
-
-Lesson #79: LOVE MINUS ZERO (Bob Dylan)
-https://www.youtube.com/watch?v=dae33U5HMyM
-
-Lesson #80: PINK PANTHER (Henry Mancini)
-https://www.youtube.com/watch?v=HKUUsUVIAnQ
-
-Lesson #81: DANNY BOY (LONDONDERRY AIR)
-https://www.youtube.com/watch?v=Eo7g_aypmvk
-
-Lesson #82: MOON RIVER (Henry Mancini)
-https://www.youtube.com/watch?v=vWucfFk0xGg
-
-Lesson #83: GUANTANAMERA
-https://www.youtube.com/watch?v=6jp8YwbdJXU
-
-Lesson #84: GO WEST (Village People/Pet Shop Boys)
-https://www.youtube.com/watch?v=cj6m_x8YFG8
-
-Lesson #85: PEOPLE GET READY
-https://www.youtube.com/watch?v=PS8ycas3fic
-
-Lesson #86: THE SOUTH WIND (Irish Tune)
-https://www.youtube.com/watch?v=cO_cjPAoaPU
-
-Lesson #87: KING OF THE ROAD
-https://www.youtube.com/watch?v=uLbvLawVCTs
-
-Lesson #88: MELLOW YELLOW (Donovan)
-https://www.youtube.com/watch?v=SHIYkhlCTOs
-
-Lesson #89: HERE COMES THE BRIDE (Richard Wagner)
-https://www.youtube.com/watch?v=s_yDj62W8lg
-
-Lesson #90: SONATA IN A MAJOR (Wolfgang Amadeus Mozart)
-https://www.youtube.com/watch?v=WIGgsil7IGg
-
-Lesson #91: PLANXTY IRWIN (Irish Tune)
-https://www.youtube.com/watch?v=0ovWbjCkdBk
-
-Lesson #92: SCHNEEWALZER
-https://www.youtube.com/watch?v=pyTgPEBXo24
-
-Lesson #93: DAT DU MIN LEEVSTEN BÜST
-https://www.youtube.com/watch?v=nr7lHM-tApg
-
-Lesson #94: KATYUSHA (Russian Lovesong)
-https://www.youtube.com/watch?v=rvfGN4U4z5s
-
-Lesson #95: NOBODY KNOWS THE TROUBLE I'VE SEEN (Spiritual)
-https://www.youtube.com/watch?v=cyDkHhEfvas
-
-Lesson #96: DIE LORELEY (Deutsches Volkslied)
-https://www.youtube.com/watch?v=ED3b0Yu_9UY
-
-Lesson #97: LORD OF THE DANCE (Simple Gifts)
-https://www.youtube.com/watch?v=oNxT0M8uIQg
-
-Lesson #98: YOU AIN'T GOIN' NOWHERE (Bob Dylan)
-https://www.youtube.com/watch?v=IfDEIvBwLrw
-
-Lesson #99: SERENADE (Joseph Haydn)
-https://www.youtube.com/watch?v=yfeBIdYKOnE
-
-Lesson #100​: ODE TO JOY / ODE AN DIE FREUDE (Ludwig van Beethoven)
-https://www.youtube.com/watch?v=c_N5irYfjwg
-
-Lesson #101​: Mr. TAMBOURINE MAN (Bob Dylan)
-https://www.youtube.com/watch?v=JeNaEoPTnCc
-
-Lesson #102​: BANG BANG (Nancy Sinatra)
-https://www.youtube.com/watch?v=XRJSRBWb7mU
-
-Lesson #103​: YOU BELONG TO ME (Bob Dylan)
-https://www.youtube.com/watch?v=iOC9Y7IGVVw
-
-Lesson #104​: LET IT BE ME (The Everly Brothers)
-https://www.youtube.com/watch?v=M9j2kSTWv5s
-
-Lesson #105​: LES CHAMPS-ELYSSES (Joe Dassin)
-https://www.youtube.com/watch?v=wjepul_bFkg
-
-Lesson #106​: IN MY PLACE (Coldplay)
-https://www.youtube.com/watch?v=hpc0Ed0AToo
-
-Lesson #107​: FIX YOU (Coldplay)
-https://www.youtube.com/watch?v=z8RDGAtxrJs
-
-Lesson #108​: A GROOVY KIND OF LOVE (Phil Collins)
-https://www.youtube.com/watch?v=oR_-A_gpn6k
-
-Lesson #109​: THE BOOK OF LOVE (Peter Gabriel)
-https://www.youtube.com/watch?v=yWIxETtbXxM
-
-Lesson #110​: TIME AFTER TIME (Cyndi Lauper)
-https://www.youtube.com/watch?v=6AF1YULBV6U
-
-Lesson #111​: QUE SERA SERA (Doris Day)
-https://www.youtube.com/watch?v=XeO-QfwG0zs
-
-Lesson #112​: MACK THE KNIFE/MACKIE MESSER (Bert Brecht/Kurt Weill)
-https://www.youtube.com/watch?v=ygiF3hlEAlQ
-
-Lesson #113​: WIND OF CHANGE (Scorpions)
-https://www.youtube.com/watch?v=HIceTOWZ9NM
-
-Lesson #114​: HALLELUJAH (Leonard Cohen)
-https://www.youtube.com/watch?v=qp3wcmySXQc
-
-Lesson #115​: DAS MODEL (Kraftwerk)
-https://www.youtube.com/watch?v=8PIXiwrIj9c
-
-Lesson #116​: THOSE WERE THE DAYS (Mary Hopkin)
-https://www.youtube.com/watch?v=NwMM50GSNaA
-
-Lesson #117​: SEALED WITH A KISS (Brian Hyland)
-https://www.youtube.com/watch?v=uz0djt1ie6U
-
-Lesson #118​: IN DIE BERG BIN I GERN (Kärntner Volkslied)
-https://www.youtube.com/watch?v=wUM-Hjc088o
-
-Lesson #119​: MY BONNIE LIES OVER THE OCEAN
-https://www.youtube.com/watch?v=M7MPLV5GDHA
-
-Lesson #120​: GOD SAVE THE QUEEN ( National Anthem of The United Kingdom)
-https://www.youtube.com/watch?v=LIAOZDjtA1U
-
-Lesson #121​: KNOCKING ON HEAVEN'S DOOR (Bob Dylan)
-https://www.youtube.com/watch?v=PvjqLjbAt3g
-
-Lesson #122​: I WANT YOU (Bob Dylan)
-https://www.youtube.com/watch?v=g-AkidUDcqM
-
-Lesson #123​: AFTER THE GOLDRUSH (Neil Young)
-https://www.youtube.com/watch?v=6hNPxxiY8RI
-
-Lesson #124​: WHAT A WONDERFUL WORLD (Louis Armstrong)
-https://www.youtube.com/watch?v=fRNybge-XJY
-
-Lesson #125​: FOLSOM PRISON BLUES (Johnny Cash)
-https://www.youtube.com/watch?v=N4OKJdKOCE4
-
-Lesson #126​: GASOLINE ALLEY (Rod Stewart)
-https://www.youtube.com/watch?v=jLFcAwpSax8
-
-Lesson #127​: ANNIE'S SONG (John Denver)
-https://www.youtube.com/watch?v=6CRsCwiZo_Y
-
-Lesson #128​: JAMBALAYA (Hank Williams)
-https://www.youtube.com/watch?v=uoO5ZSfCv3w
-
-Lesson #129​: THE WATER IS WIDE (Scottish Traditional)
-https://www.youtube.com/watch?v=AW0YN_6QSVs
-
-Lesson #130​: HERE COMES THE SUN (George Harrison/The Beatles)
-https://www.youtube.com/watch?v=OzVOQBQ3etk
-
-Lesson #131​: AN ANGEL (The Kelly Family)
-https://www.youtube.com/watch?v=dBilDHpiLCk
-
-Lesson #132​: ONE OF US (Joan Osborne)
-https://www.youtube.com/watch?v=46uAN4orhlg
-
-Lesson #133​: LEAVING ON A JET PLANE (John Denver)
-https://www.youtube.com/watch?v=KPCMzeAu95A
-
-Lesson #134​: St. JAMES INFIRMARY
-https://www.youtube.com/watch?v=hHJf3T5Qy2E
-
-Lesson #135​: EARTH SONG (Michael Jackson)
-https://www.youtube.com/watch?v=xOQdgNxeicc
-
-Lesson #136​: SWAY (Dean Martin)
-https://www.youtube.com/watch?v=_ppBaffLlww
-
-Lesson #137​: PACKINGTON'S POUND (Renaissance Lute Music)
-https://www.youtube.com/watch?v=tYWpX_9bCfs
-
-Lesson #138​: IN THE SUMMERTIME (Mungo Jerry)
-https://www.youtube.com/watch?v=zcc5jXxOZec
-
-Lesson #139​: DOWNTOWN (Petula Clark)
-https://www.youtube.com/watch?v=V8c4c2SpjEA
-
-Lesson #140​: NJOSNAVELIN (Sigur Ros)
-https://www.youtube.com/watch?v=ooHGqiVrPjk
-
-Lesson #141​: WEIT WEIT WEG (Hubert von Goisern)
-https://www.youtube.com/watch?v=7jdPqGZdbgs
-
-Lesson #142​: MINUET IN G (Bach/Petzold)
-https://www.youtube.com/watch?v=LM3ZT3uhvHY
-
-Lesson #143​: KILLING ME SOFTLY (Roberta Flack)
-https://www.youtube.com/watch?v=ZVusroLi6gA
-
-Lesson #144​: EIN STERN, DER DEINEN NAMEN TRÄGT
-https://www.youtube.com/watch?v=ZkvavQXcGuA
-
-Lesson #145​: MOLLY MALONE (Irish Traditional)
-https://www.youtube.com/watch?v=z663EzH7CME
-
-Lesson #146​: AMAZING GRACE
-https://www.youtube.com/watch?v=2QSSRNpN_zM
-
-Lesson #147​: CAN'T HELP FALLING IN LOVE
-https://www.youtube.com/watch?v=l7zDuvoF1WM
-
-Lesson #148​: LOVE ME DO (The Beatles)
-https://www.youtube.com/watch?v=4nBp3QtWXHY
-
-Lesson #149​: LOVE ME TENDER (Elvis Presley)
-https://www.youtube.com/watch?v=xoQgBUAV0Ew
-
-Lesson #150​: GIRL FROM THE NORTH COUNTRY (Bob Dylan)
-https://www.youtube.com/watch?v=PaV4JddLbhI
-
-Lesson #151​: RING OF FIRE (Johnny Cash)
-https://www.youtube.com/watch?v=PnlVS71oNDA
-
-Lesson #152​: THE LION SLEEPS TONIGHT
-https://www.youtube.com/watch?v=ZVdpG0WQLWM
-
-Lesson #153​: FLY ME TO THE MOON
-https://www.youtube.com/watch?v=0ksuGNH5930
-
-Lesson #154​: FAREWELL TAE TARWATHIE
-https://www.youtube.com/watch?v=XiyO2f-iMdo
-
-Lesson #155​: NO WOMAN NO CRY (Bob Marley)
-https://www.youtube.com/watch?v=G4a3s6lz1Hc
-
-Lesson #156​: THE SPANISH LADY (Irish Traditional)
-https://www.youtube.com/watch?v=8qp2WPn1KTc
-
-Lesson #157​: LET IT BE (The Beatles)
-https://www.youtube.com/watch?v=2PAVjVuFoNo
-
-Lesson #158​: FRIDAY I'M IN LOVE (The Cure)
-https://www.youtube.com/watch?v=_JvxbmYx8Zs
-
-Lesson #159​: NUMB (Linkin Park)
-https://www.youtube.com/watch?v=7-6xj1CZRkA
-
-Lesson #160​: O'KEEFE'S SLIDE (Irish Traditional)
-https://www.youtube.com/watch?v=RGdNHSPEfTk
-
-Lesson #161​: BELLA CIAO
-https://www.youtube.com/watch?v=zIe0UnTocS0
-
-Lesson #162​: WINTER WONDERLAND
-https://www.youtube.com/watch?v=CloVNAIJFRk
-
-Lesson #163​: LAMBADA
-https://www.youtube.com/watch?v=lNI2vVOLhfA
-
-Lesson #164​: LEISE RIESELT DER SCHNEE
-https://www.youtube.com/watch?v=eW4eQpAZuK4
-
-Lesson #165​: ALWAYS WITH ME (Spirited Away)
-https://www.youtube.com/watch?v=lL1x8lrkhvs
-
-Lesson #166​: STILL GOT THE BLUES (Gary Moore)
-https://www.youtube.com/watch?v=qB4b_MLvniA
-
-Lesson #167​: SPANISH ROMANCE
-https://www.youtube.com/watch?v=-Ft3LXGDQJc
-
-Lesson #168​: HO HEY (The Lumineers)
-https://www.youtube.com/watch?v=TlRrMOg4wfI
-
-Lesson #169​: TRUE COLORS (Cyndi Lauper)
-https://www.youtube.com/watch?v=a2CkTIsp43I
-
-Lesson #170​: JOHN BARLEYCORN (English Ballad)
-https://www.youtube.com/watch?v=8agoWmKt0a0
-
-Lesson #171: SAD LISA (Cat Stevens)
-https://www.youtube.com/watch?v=QoQmmJOE6R0
-
-Lesson #172: THE LAST THING ON MY MIND (Tom Paxton)
-https://www.youtube.com/watch?v=zC_ZWrqUscs
-
-Lesson #173: SUN OF JAMAICA (Goombay Dance Band)
-https://www.youtube.com/watch?v=_M5NGrKoiK8
-
-Lesson #174: GROW OLD WITH YOU (Adam Sandler)
-https://www.youtube.com/watch?v=-nCoa14yeGQ
-
-Lesson #175: SOMEWHERE OVER THE RAINBOW
-https://www.youtube.com/watch?v=HFK7wJmZ1g4
-
-Lesson #176: CAN YOU FEEL THE LOVE TONIGHT (The Lion King)
-https://www.youtube.com/watch?v=DrKsJLMG770
-
-Lesson #177: I WANNA BE LIKE YOU (The Jungle Book)
-https://www.youtube.com/watch?v=NGCAWQ6Cg1Y
-
-Lesson #178: COUNTRY GARDENS (English Folk Song)
-https://www.youtube.com/watch?v=M45gUZXU-Zc
-
-Lesson #179: DIRTY OLD TOWN (Ewan MacColl)
-https://www.youtube.com/watch?v=UI-_CtwzngE
-
-Lesson #180: MICHAEL ROW THE BOAT ASHORE (Spiritual)
-https://www.youtube.com/watch?v=zpd_Pa6MPMY
-
-Lesson #181: ABIDE WITH ME (Christian Hymn)
-https://www.youtube.com/watch?v=Ocj3KI29jac
-
-Lesson #182: BASKET CASE (Green Day)
-https://www.youtube.com/watch?v=SgjNAG7-QXI
-
-Lesson #183: CALIFORNICATION (Red Hot Chili Peppers)
-https://www.youtube.com/watch?v=itTsNfX74hc
-
-Lesson #184: THE LARK IN THE MORNING (English Folk Song)
-https://www.youtube.com/watch?v=nIa-RKTWDSU
-
-Lesson #185: MENUETT (Johann Krieger)
-https://www.youtube.com/watch?v=8JFmWiLcDoM
-
-Lesson #186: CHARIOTS OF FIRE (Vangelis)
-https://www.youtube.com/watch?v=B_LEImyaX3A
-
-Lesson #187: MARY HAMILTON (Scottish Ballad)
-https://www.youtube.com/watch?v=J536gTslmgY
-
-Lesson #188: STRAYAWAY CHILD (Irish Traditional)
-https://www.youtube.com/watch?v=9Ns3m59YZSM
-
-Lesson #189: SUMMER OF 69 (Bryan Adams)
-https://www.youtube.com/watch?v=tB5DKSmdrZ0
-
-Lesson #190: LA VIE EN ROSE (Edith Piaf)
-https://www.youtube.com/watch?v=eihcNeflPjo
-
-Lesson #191: CHAN CHAN (Buena Vista Social Club)
-https://www.youtube.com/watch?v=39jQ2wPOS0o
-
-Lesson #192: I HAVE A DREAM (ABBA)
-https://www.youtube.com/watch?v=P2MzKgqSaC4
-
-Lesson #193: TEQUILA (The Champs)
-https://www.youtube.com/watch?v=QsXUmioWZmg
-
-Lesson #194: ALL I HAVE TO DO IS DREAM (Everly Brothers)
-https://www.youtube.com/watch?v=cyA86xtE8Fg
-
-Lesson #195: SAMBA PA TI (Carlos Santana)
-https://www.youtube.com/watch?v=MbtS9B4_J4I
-
-Lesson #196: RAINDROPS KEEP FALLING ON MY HEAD (BJ Thomas)
-https://www.youtube.com/watch?v=dTrcD1IWK-c
-
-Lesson #197: BROTHERS IN ARMS (Mark Knopfler/Dire Straits)
-https://www.youtube.com/watch?v=Wz0rDSrtCDM
-
-Lesson #198: MIDNIGHT IN MOSCOW
-https://www.youtube.com/watch?v=JzAP51wlH_M
-
-Lesson #199: MASSACHUSETTS (Bee Gees)
-https://www.youtube.com/watch?v=FlcZf4WS-GA
-
-Lesson #200: SEE YOU AGAIN (Wiz Khalifa ft. Charly Puth)
-https://www.youtube.com/watch?v=ddYsZvRO5-A
-
-Lesson #201: LA CUCARACHA
-https://www.youtube.com/watch?v=XQNyLV7dGBA
-
-Lesson #202: WHEN JOHNNY COMES MARCHING HOME
-https://www.youtube.com/watch?v=ldyKEWzPImU
-
-Lesson #206: I WILL FOLLOW YOU INTO THE DARK (Death Cab For Cutie)
-https://www.youtube.com/watch?v=z3ktUFDhEg8
-
-Lesson #207: YOU RAISE ME UP
-https://www.youtube.com/watch?v=DG0kp-pCga0
-
-Lesson #208: DARK EYES
-https://www.youtube.com/watch?v=atOkOB3WkL8
-
-Lesson #209: YESTERDAY (The Beatles)
-https://www.youtube.com/watch?v=CZAYvTQhjR4
-
-Lesson #210: THE LAST ROSE OF SUMMER
-https://www.youtube.com/watch?v=sEbufnAdibE
-
-Lesson #211: DON'T THINK TWICE IT'S ALL RIGHT (Bob Dylan)
-https://www.youtube.com/watch?v=5wfMRQue4GM
-
-Lesson #212: GET BACK (The Beatles)
-https://www.youtube.com/watch?v=oqTmw8oM_Y0
-
-Lesson #213: HEY JUDE (The Beatles)
-https://www.youtube.com/watch?v=8wAdFdmLGVM
-
-Lesson #214: A HARD DAY'S NIGHT (The Beatles)
-https://www.youtube.com/watch?v=uxXA8YnMObo
-
-Lesson #215: SOMETHING (The Beatles)
-https://www.youtube.com/watch?v=kPCrYxc4QkI
-
-Lesson #216: IF I NEEDED YOU (Townes van Zandt)
-https://www.youtube.com/watch?v=QnXyLNR3A8A
-
-Lesson #217: PAINT IT BLACK (The Rolling Stones)
-https://www.youtube.com/watch?v=kpHwN64dVGs
-
-Lesson #218: ANOTHER BRICK IN THE WALL (Pink Floyd)
-https://www.youtube.com/watch?v=ciuYHq-418w
-
-Lesson #219: NOBODY KNOWS YOU WHEN YOU'RE DOWN AND OUT (Eric Clapton)
-https://www.youtube.com/watch?v=8xMG2UBEg0U
-
-Lesson #220: LA-LE-LU (German Lullaby)
-https://www.youtube.com/watch?v=GRkbuTXgzQU
-
-Lesson #221: GAMES PEOPLE PLAY (Joe South)
-https://www.youtube.com/watch?v=vMa_aXaBI9E
-
-Lesson #222: FACTORY (Bruce Springsteen)
-https://www.youtube.com/watch?v=YMu6fZe-GbY
-
-Lesson #223: MY HOMETOWN (Bruce Springsteen)
-https://www.youtube.com/watch?v=VKfR-cI39Vo
-
-Lesson #224: BOTTLE OF WINE (Tom Paxton)
-https://www.youtube.com/watch?v=pz2j7PFIk_M
-
-Lesson #225: ME AND BOBBY McGEE (Kris Kristofferson)
-https://www.youtube.com/watch?v=z2PL0IRVHTk
-
-Lesson #226: ELEANOR RIGBY (The Beatles)
-https://www.youtube.com/watch?v=Hu78Hxm9gjY
-
-Lesson #227: SMOKE ON THE WATER (Deep Purple)
-https://www.youtube.com/watch?v=U9S5ApcyYeA
-
-Lesson #228: WEISST DU WIEVIEL STERNLEIN STEHEN (German Lullaby)
-https://www.youtube.com/watch?v=OBYz75SGkik
-
-Lesson #229: GUARANTEED (Eddie Vedder)
-https://www.youtube.com/watch?v=AnfkYu9_bZg
-
-Lesson #230: STAND BY ME - Song Accompaniment
-https://www.youtube.com/watch?v=CnvprMQ0gjI
-
-Lesson #231: FOREVER YOUNG (Alphaville)
-https://www.youtube.com/watch?v=_eayTpCHRf4
-
-Lesson #232: HAVE YOU EVER SEEN THE RAIN (CCR)
-https://www.youtube.com/watch?v=EcvhHfccSCU
-
-Lesson #233: 'TIS SO SWEET TO TRUST IN JESUS (Christian Hymn)
-https://www.youtube.com/watch?v=vP9kQ3ydT2E
-
-Lesson #234: I WALK THE LINE (Johnny Cash)
-https://www.youtube.com/watch?v=j0bfjCS1wrg
-
-Lesson #235: THREE LITTLE BIRDS (Bob Marley)
-https://www.youtube.com/watch?v=o5kegfNSbbo
-
-Lesson #236: HURT (Nine Inch Nails/Johnny Cash)
-https://www.youtube.com/watch?v=4m9_XnGN5sE&t=112s
-
-Lesson #237: SUN OF JAMAICA (Goombay Dance Band)
-https://www.youtube.com/watch?v=TxzBIC18Y2M
-
-Lesson #238: WE WILL ROCK YOU (Queen)
-https://www.youtube.com/watch?v=2pSfgRPLPwk
-
-Lesson #239: MARY HAMILTON (Scottish Ballad)
-https://www.youtube.com/watch?v=tsedqQCBG5w
-
-Lesson #240: DANS FISEL (Breton Dance Tune)
-https://www.youtube.com/watch?v=ao8oBhUO_lo
-
-Lesson #241: KALINKA (Russian Song)
-https://www.youtube.com/watch?v=mH7qb1v8UH8
-
-Lesson #242: DIANA (Paul Anka)
-https://www.youtube.com/watch?v=R_sRq6oKaLQ
-
-Lesson #243: THE ROSE (Betty Midler)
-https://www.youtube.com/watch?v=Vu5T_ILQ114
-
-Lesson #244: IRISH WEDDING (Irish Traditional)
-https://www.youtube.com/watch?v=wUYyc3y0yqw
-
-Lesson #245: RODDY McCORLEY (Irish Song)
-https://www.youtube.com/watch?v=BRtqubFd8oI
-
-Lesson #246: RED IS THE ROSE (Irish Traditional)
-https://www.youtube.com/watch?v=3dAxft4eoNQ
-
-Lesson #247: TANGO TO EVORA (Loreena McKennitt)
-https://www.youtube.com/watch?v=suM7BD9ODmM
-
-Lesson #248: EL CONDOR PASA (Peruvian Folk Song)
-https://www.youtube.com/watch?v=5VovZeXzEfs
-
-Lesson #249: BEI MIR BIST DU SCHÖN (Jiddish Song)
-https://www.youtube.com/watch?v=MRaL6bemK4o
-
-Lesson #250: DONAUWALZER (Blue Danube Waltz/Johann Strauss)
-https://www.youtube.com/watch?v=e2vc5ePApus
-
-Lesson #251: ONLY A HOBO (Bob Dylan)
-https://www.youtube.com/watch?v=PRGlT-jXXI8
-
-Lesson #252: ROXBOROUGH CASTLE (Scottish Traditional)
-https://www.youtube.com/watch?v=0p0XSnv9ztE
-
-Lesson #253: ACROSS THE UNIVERSE (The Beatles)
-https://www.youtube.com/watch?v=GfObxOiD2E0
-
-Lesson #254: THE QUIET LAND OF ERIN (Irish Traditional)
-https://www.youtube.com/watch?v=XM276E3bVvc
-
-Lesson #255: TURN TURN TURN (Pete Seeger/The Byrds)
-https://www.youtube.com/watch?v=UppH9pMamow
-
-Lesson #256: LADY D'ARBANVILLE (Cat Stevens)
-https://www.youtube.com/watch?v=ll-so7Ik8us
-
-Lesson #257: SWEET HOME ALABAMA (Lynyrd Skynyrd)
-https://www.youtube.com/watch?v=xBkdC0xfioA
-
-Lesson #258: ZEHN KLEINE JÄGERMEISTER (Die Toten Hosen)
-https://www.youtube.com/watch?v=SEBCweh1TLU
-
-Lesson #259: DER MOND IST AUFGEGANGEN (German Lullaby)
-https://www.youtube.com/watch?v=UB0lTUvqqTg
-
-Lesson #260: THE TIMES THEY ARE A-CHANGIN' (Bob Dylan)
-https://www.youtube.com/watch?v=NHaqTUesq6I
-
-Lesson #261: DEATH OF A CLOWN (Dave Davies/The Kinks)
-https://www.youtube.com/watch?v=966uuEgtJpA
-
-Lesson #262: PENELOPE'S SONG (Loreena McKennitt)
-https://www.youtube.com/watch?v=c92zUIfpbG8
-
-Lesson #263: THE WANDERER (Dion)
-https://www.youtube.com/watch?v=TYAvDt17NtY
-
-Lesson #264: WHISPERING (Jazz Standard)
-https://www.youtube.com/watch?v=yFH3ZByXH2I
-
-Lesson #265: DIE GEDANKEN SIND FREI (German Traditional/Pete Seeger))
-https://www.youtube.com/watch?v=0Txtm2W5uNE
-
-Lesson #266: ALLEMANDE (Medieval Tune)
-https://www.youtube.com/watch?v=xEAG5KEcecs
-
-Lesson #267: DREAM A LITTLE DREAM OF ME (The Mamas And The Papas)
-https://www.youtube.com/watch?v=diNgUoSOHeU
-
-Lesson #268: THE SHEARING'S NOT FOR YOU (Scottish Traditional)
-https://www.youtube.com/watch?v=MQK-7SfdBIQ
-
-Lesson #269: THE SCIENTIST (Coldplay)
-https://www.youtube.com/watch?v=zsBPYwCLZGk
-
-Lesson #270: COUNTRY ROADS (John Denver / PART 1)
-https://www.youtube.com/watch?v=JhOh4f1llU8
-
-Lesson #271: COUNTRY ROADS (John Denver / PART 2)
-https://www.youtube.com/watch?v=htLo65RvjaY
-
-Lesson #272: MY WAY (Frank Sinatra/Main Theme)
-https://www.youtube.com/watch?v=TfNIvAGH5zM
-
-Lesson #273: NEVER ENDING ROAD (Loreena McKennitt)
-https://www.youtube.com/watch?v=9Ia_RNXY4so
-
-Lesson #274: SUNSHINE OF YOUR LOVE (Cream/Eric Clapton)
-https://www.youtube.com/watch?v=fQOZgc3oscY
-
-Lesson #275: OH SUSANNA (Minstrel Song)
-https://www.youtube.com/watch?v=blx8MPTS5DM
-
-Lesson #276: ONE MORE CITY (Colin Wilkie/Hannes Wader)
-https://www.youtube.com/watch?v=Ag7QUleefIA
-
-Lesson #277: EVERY BREATH YOU TAKE (The Police / PART 1)
-https://www.youtube.com/watch?v=CpASUpRdjF8
-
-Lesson #278: EVERY BREATH YOU TAKE (The Police / PART 2)
-https://www.youtube.com/watch?v=STWlv8dwJZM
-
-Lesson #279: WHAT SHALL WE DO WITH A DRUNKEN SAILOR (Shanty)
-https://www.youtube.com/watch?v=FHVSKv9AL2I
-
-Lesson #280: WHEN THE SAINTS GO MARCHING IN (Spiritual)
-https://www.youtube.com/watch?v=ILAdbMpqKP0
-
-Lesson #281: HE'S GOT THE WHOLE WORLD IN HIS HANDS (American Spiritual)
-https://www.youtube.com/watch?v=AXEFis6eyio
-
-Lesson #282: FIVE FOOT TWO, EYES OF BLUE
-https://www.youtube.com/watch?v=Wsgq4slmMJM
-
-Lesson #283: FÜRSTENFELD (STS / PART 1)
-https://www.youtube.com/watch?v=MdcRqsMJ6I8
-
-Lesson #284: FÜRSTENFELD (STS / PART 2)
-https://www.youtube.com/watch?v=svby7pnNujU
-
-Lesson #285: 20th CENTURY FOX FANFARE
-https://www.youtube.com/watch?v=pBPgSFhh7yw
-
-Lesson #286: HARD TIMES (Stephen Foster)
-https://www.youtube.com/watch?v=4132Owg3Zjs
-
-Lesson #287: ROCKIN' ALL OVER THE WORLD (John Fogerty/Status Quo)
-https://www.youtube.com/watch?v=h1vPWswiyxg
-
-Lesson #288: IT'S A HEARTACHE (Bonnie Tyler)
-https://www.youtube.com/watch?v=pCswBsuddrc
-
-Lesson #289: INISHEER (Thomas Walsh)
-https://www.youtube.com/watch?v=oVYhJXQxt50
-
-Lesson #290: HEY HEY, MY MY (Neil Young)
-https://www.youtube.com/watch?v=uex4ZnDrS9U
-
-Lesson #291: BESAME MUCHO (Consuelo Velazquez)
-https://www.youtube.com/watch?v=1Bz4yH944fc
-
-Lesson #292: YES SIR, THAT'S MY BABY
-https://www.youtube.com/watch?v=AwFu8AB21aY
-
-Lesson #293: BLUES RUN THE GAME (Jackson C. Frank)
-https://www.youtube.com/watch?v=9WvQlSpReUo
-
-Lesson #294: COCAINE (J.J. Cale/Eric Clapton)
-https://www.youtube.com/watch?v=SoLfvQfAo9g
-
-Lesson #295: MERCEDES BENZ (Janis Joplin)
-https://www.youtube.com/watch?v=4_HKtGj5IPk
-
-Lesson #296: POMP AND CIRCUMSTANCE (Sir Edward Elgar)
-https://www.youtube.com/watch?v=fgmyoTWNMdo
-
-Lesson #297: THE PARTING GLASS (Scottish Traditional)
-https://www.youtube.com/watch?v=bDQiqko8LZQ
-
-Lesson #298: LOOK WHAT THEY'VE DONE TO MY SONG MA (Melanie)
-https://www.youtube.com/watch?v=9V66Uqf3LU4
-
-Lesson #299: CALIFORNIA DREAMING (The Mamas & The Papas)
-https://www.youtube.com/watch?v=9TtWZqxagMc
-
-Lesson #300: RAINY DAY WOMEN #12 & 35 (Bob Dylan)
-https://www.youtube.com/watch?v=Rbn1OA8amZ4
-
-Lesson #301: WHERE HAVE ALL THE FLOWERS GONE (Pete Seeger)
-https://www.youtube.com/watch?v=uySJVzpc3Ig
-
-Lesson #302: APACHE (The Shadows)
-https://www.youtube.com/watch?v=cz1SLJt18v8
-
-Lesson #303: I SHOT THE SHERIFF (Bob Marley/Eric Clapton)
-https://www.youtube.com/watch?v=PblbSSXahhI
-
-Lesson #304: CAN'T BUY ME LOVE (The Beatles)
-https://www.youtube.com/watch?v=qNMfPRdvFms
-
-Lesson #305: ALL MY LOVING (The Beatles)
-https://www.youtube.com/watch?v=86lzFXyau6c
-
-Lesson #306: TOM'S DINER (Suzanne Vega)
-https://www.youtube.com/watch?v=lS3K2JfHS7o
-
-Lesson #307: YOU CAN'T ALWAYS GET WHAT YOU WANT (The Rolling Stones)
-https://www.youtube.com/watch?v=yRtDCqHE4Ww
-
-Lesson #308: SUMMERTIME BLUES (Eddie Cochran)
-https://www.youtube.com/watch?v=2rSIXSjeh4Y
-
-Lesson #309: IF YOU'RE HAPPY AND YOU KNOW IT (Children Song)
-https://www.youtube.com/watch?v=c4z1lPftBvY
-
-Lesson #310: COME TOGETHER (The Beatles)
-https://www.youtube.com/watch?v=Ok4JbWifi1Y
-
-Lesson #311: CHATTANOOGA CHOO CHOO (Glen Miller)
-https://www.youtube.com/watch?v=gEnEtrsNr0c
-
-Lesson #312: AGADOO (Black Lace)
-https://www.youtube.com/watch?v=UD7KB9Qb0ao
-
-Lesson #313: RING OF FIRE (Johnny Cash)
-https://www.youtube.com/watch?v=rM6Ej78m_U0
-
-Lesson #314: ALLE MEINE ENTCHEN (Children Song)
-https://www.youtube.com/watch?v=jZHegO4zvUA
-
-Lesson #315: MARRY YOU (Bruno Mars)
-https://www.youtube.com/watch?v=ZhKkWKoHGlk
-
-Lesson #316: LA DONNA E MOBILE (Guiseppe Verdi)
-https://www.youtube.com/watch?v=0uEg5hmktFc
-
-Lesson #317: LIKE A HURRICANE (Neil Young)
-https://www.youtube.com/watch?v=yqgJveSr1cM
-
-Lesson #318: STRANGERS IN THE NIGHT
-https://www.youtube.com/watch?v=z1q2ZiJie1A
-
-Lesson #319: THE GODFATHER (Love Theme)
-https://www.youtube.com/watch?v=i8PrLQ9CrdY
-
-Lesson #320: WE ARE THE WORLD (USA for Africa)
-https://www.youtube.com/watch?v=cAjdgyyJiEA
-
-Lesson #321: DA DOO RON RON (The Crystals)
-https://www.youtube.com/watch?v=ovayInqnSSM
-
-Lesson #322: MIDNIGHT SPECIAL (Traditional)
-https://www.youtube.com/watch?v=S9mzpdmlB4w
-
-Lesson #323: FATHER & SON (Cat Stevens)
-https://www.youtube.com/watch?v=bQDQetQzAZQ
-
-Lesson #324: BANKS OF THE OHIO (Traditional)
-https://www.youtube.com/watch?v=vdp5Xi5BmTc
-
-Lesson #325: DANSE BRANDEBOURGEOISE (Anonym)
-https://www.youtube.com/watch?v=aeFpQwtPQcg
-
-Lesson #326: THE BANANA BOAT SONG ("Day-O"/Harry Belafonte)
-https://www.youtube.com/watch?v=aeri36sV_L4
-
-Lesson #327: ISN'T SHE LOVELY (Stevie Wonder)
-https://www.youtube.com/watch?v=hrnD4PeK2AU
-
-Lesson #328: THE HIGHLAND BOAT SONG (Scottish Traditional)
-https://www.youtube.com/watch?v=cZgVNvGRKuQ
-
-Lesson #329: SANTA LUCIA (Neapolitan Traditional)
-https://www.youtube.com/watch?v=PAe9ec5Sk4o
-
-Lesson #330: AMOI SEG' MA UNS WIEDER (PART 1)
-https://www.youtube.com/watch?v=ZzpE6aQkq7w
-
-Lesson #331: AMOI SEG' MA UNS WIEDER (PART 2)
-https://www.youtube.com/watch?v=xxbxQrMhfhQ
-
-Lesson #332: FIRST BLUES
-https://www.youtube.com/watch?v=lH7Qjem567w
-
-Lesson #333: MY CREOLE BELLE (Mississippi John Hurt)
-https://www.youtube.com/watch?v=lPh-QvBMV2I
-
-Lesson #334: NO EXPECTATIONS (The Rolling Stones)
-https://www.youtube.com/watch?v=DA7YDyilYQc
-
-Lesson #335: YELLOW SUBMARINE (The Beatles)
-https://www.youtube.com/watch?v=Fc7voQCcIUo
-
-Lesson #336: EINE INSEL MIT ZWEI BERGEN (Das Lummerland-Lied)
-https://www.youtube.com/watch?v=027wSsiFJEg
-
-Lesson #337: MALAIKA (Miriam Makeba)
-https://www.youtube.com/watch?v=3HCHOvE3hJQ
-
-Lesson #338: SAFE AND SOUND (Taylor Swift)
-https://www.youtube.com/watch?v=lNEWnaLETpw
-
-Lesson #339: SPANISH HARLEM (Ben E. King)
-https://www.youtube.com/watch?v=AZn3tCR1-14
-
-Lesson #340: OCTOPUS'S GARDEN (The Beatles)
-https://www.youtube.com/watch?v=UCXnZlcM7k8
-
-Lesson #341: BYE BYE LOVE (The Everly Brothers)
-https://www.youtube.com/watch?v=BNu_hDUbRi0
-
-Lesson #342: HUNGRY HEART (Bruce Springsteen)
-https://www.youtube.com/watch?v=3lVO4mw20fE
-
-Lesson #343: MARV PONTKALLEG (Traditional)
-https://www.youtube.com/watch?v=7CMCN2O3oTM
-
-Lesson #344: SUMMER WINE (Nancy Sinatra/Lana Del Ray)
-https://www.youtube.com/watch?v=3dukaGGUqkM
-
-Lesson #345: STILL THE SAME (Bob Seger)
-https://www.youtube.com/watch?v=kzkOljDpk4Y
-
-Lesson #346: KOROBEINIKI (TETRIS-THEME)
-https://www.youtube.com/watch?v=HS5LJ-XjeUs
-
-Lesson #347: VAN DIEMEN'S LAND (U2)
-https://www.youtube.com/watch?v=_aLQmW4F_aA
-
-Lesson #348: THE END OF THE WORLD (Skeeter Davis)
-https://www.youtube.com/watch?v=q40vK6sgeF4
-
-Lesson #349: BUCKDANCER'S CHOICE (Sam McGee)
-https://www.youtube.com/watch?v=pdn5jd7O29g
-
-Lesson #350: DEMONS (Imagine Dragons)
-https://www.youtube.com/watch?v=V__il-1qCZM
-
-Lesson #351: IN THE ARMY NOW (Status Quo)
-https://www.youtube.com/watch?v=HE2Mryp62E0
-
-Lesson #352: SEASONS IN THE SUN (Terry Jacks)
-https://www.youtube.com/watch?v=22HOZ5GncLo
-
-Lesson #353: MARMOR, STEIN UND EISEN BRICHT (Drafi Deutscher)
-https://www.youtube.com/watch?v=UbzwlQp9_xQ
-
-Lesson #354: ALS ICH FORTGING (Dirk Michaelis/Karussell)
-https://www.youtube.com/watch?v=poqdeJYC8xA
-
-Lesson #355: HEUTE HIER, MORGEN DORT (Hannes Wader)
-https://www.youtube.com/watch?v=4TrbM7giVTk
-
-Lesson #356: BONANZA (Theme Song)
-https://www.youtube.com/watch?v=lp5xZodeegU
-
-Lesson #357: MULL OF KINTYRE (Paul McCartney/Wings)
-https://www.youtube.com/watch?v=gI9_Y0xTOXY
-
-Lesson #358: THE PASSENGER (Iggy Pop)
-https://www.youtube.com/watch?v=D7c6LvmDkHw
-
-Lesson #359: GANGSTA'S PARADISE (Coolio)
-https://www.youtube.com/watch?v=6aBUYHKs6P8
-
-Lesson #360: BARBARA ANN (The Beach Boys)
-https://www.youtube.com/watch?v=lCpJvrZYMSA
-
-Lesson #361: LEMON'S BLUES (Traditional)
-https://www.youtube.com/watch?v=ykFRG3ckcyA
-
-Lesson #362: USE SOMEBODY (Kings Of Leon)
-https://www.youtube.com/watch?v=MArzsj95Psg
-
-Lesson #363: MINUET IN F (Anonym)
-https://www.youtube.com/watch?v=WODTEb7efM0
-
-Lesson #364: MY HEART WILL GO ON (Titanic Theme Song)
-https://www.youtube.com/watch?v=rUancUa5hT8
-
-Lesson #365: THE SKYE BOAT SONG (Outlander Theme Song)
-https://www.youtube.com/watch?v=-txrPQf8MQw
-
-Lesson #366: TE DEUM ( Marc-Antoine Charpentier)
-https://www.youtube.com/watch?v=VIM4DmqedEc
-
-Lesson #367: BOAT ON THE RIVER (Styx)
-https://www.youtube.com/watch?v=Rej2wepbO8A
-
-Lesson #368: ANDANTINO (Joseph Küffner)
-https://www.youtube.com/watch?v=fPuJQ08tvx4
-
-Lesson #369: ONCE I LOVED A MAIDEN FAIR (John Playford)
-https://www.youtube.com/watch?v=Nt9ygS03sPY
-
-Lesson #370: BLACK OR WHITE (Michael Jackson)
-https://www.youtube.com/watch?v=eizrgCRFn3A
-
-Lesson #371: AU CLAIR DE LA LUNE (French Children Song)
-https://www.youtube.com/watch?v=6jceD2WDv9E
-
-Lesson #372: IT'S ALL OVER NOW, BABY BLUE (Bob Dylan)
-https://www.youtube.com/watch?v=UcEArYwTyyQ
-
-Lesson #373: NONESUCH (Rennaissance Dance Tune)
-https://www.youtube.com/watch?v=shv6djSRJM8
-
-Lesson #374: MEMORIES (Maroon 5)
-https://www.youtube.com/watch?v=8XFZwooAXpM
-
-Lesson #375: FALADEIRA
-https://www.youtube.com/watch?v=usAgBm18fBA
-
-Lesson #376: BALLADE (Erik Marchelie)
-https://www.youtube.com/watch?v=1aP--1OIrWc
-
-Lesson #377: WHEN THE SHIP COMES IN (Bob Dylan)
-https://www.youtube.com/watch?v=UK7MUPdG1_w
-
-Lesson #378: ADAGIO (Johann Kaspar Mertz)
-https://www.youtube.com/watch?v=0KJO1VMos-g
-
-Lesson #379: CANARY DANCE (J. van den Hove)
-https://www.youtube.com/watch?v=JbrGsJ36sFw
-
-Lesson #380: GUTEN ABEND, GUTE NACHT (Johannes Brahms/Lullaby)
-https://www.youtube.com/watch?v=YRe_F55QRes
-
-Lesson #381: ONLY YOU (The Flying Pickets)
-https://www.youtube.com/watch?v=JQfYoAnUI3g
-
-Lesson #382: HUSH LITTLE BABY (Traditional Lullaby)
-https://www.youtube.com/watch?v=MjL7Q1mz7_w
-
-Lesson #383: THE FRENCH SONG (Lucille Starr)
-https://www.youtube.com/watch?v=gcs9TqzXObg
-
-Lesson #384: ROCK AROUND THE CLOCK (Bill Haley & His Comets)
-https://www.youtube.com/watch?v=CK4qU7iCWog
-
-Lesson #385: EDELWEISS (The Sound Of Music)
-https://www.youtube.com/watch?v=kR0WkVuECBw
-
-Lesson #386: CANTORIA
-https://www.youtube.com/watch?v=_bkmpb18XXY
-
-Lesson #387: WIEGENLIED (Wolfgang Amadeus Mozart)
-https://www.youtube.com/watch?v=MaXgvtWAFrM
-
-Lesson #388: SOMEWHERE ONLY WE KNOW (Keane)
-https://www.youtube.com/watch?v=dmcDmaE05eI
-
-Lesson #389: DIE FORELLE (Franz Schubert)
-https://www.youtube.com/watch?v=tYj4G-S531A
-
-Lesson #390: AUTUMN/HERBST (Vivaldi / Four Seasons)
-https://www.youtube.com/watch?v=yfs1FWhmKOM
-
-Lesson #391: GIVE PEACE A CHANCE (John Lennon)
-https://www.youtube.com/watch?v=AsmTRD9dOwE
-
-Lesson #392: DANCE ME TO THE END OF LOVE (Leonard Cohen)
-https://www.youtube.com/watch?v=v55aQev30lo
-
-Lesson #393: CRYING IN THE RAIN (The Everly Brothers)
-https://www.youtube.com/watch?v=r-IuC4zs2hI
-
-Lesson #394: DOWN BY THE RIVERSIDE (Gospelsong)
-https://www.youtube.com/watch?v=c2fsnvU3akY
-
-Lesson #395: BE-BOP-A-LULA (Gene Vincent)
-https://www.youtube.com/watch?v=sTyivTFa-og
-
-Lesson #396: DEUTSCHE NATIONALHYMNE (Kaiserquartett / Joseph Haydn)
-https://www.youtube.com/watch?v=xBYsXOnt0tE
-
-Lesson #397: FOUR STRONG WINDS (Ian & Sylvia)
-https://www.youtube.com/watch?v=6KWfb5In6Ig
-
-Lesson #398: LODI (Creedence Clearwater Revival)
-https://www.youtube.com/watch?v=n5sffMawX24
-
-Lesson #399: DOWN BY THE RIVER (Albert Hammond)
-https://www.youtube.com/watch?v=Yvb5FAfqPGo
-
-Lesson #400: ANDANTINO (Matteo Carcassi)
-https://www.youtube.com/watch?v=olkKjfdhr9U
-
-Lesson #401: JOLLY OLD SAINT NICHOLAS (Christmas Carol)
-https://www.youtube.com/watch?v=e9T0Nj2tacg
-
-Lesson #402: HAPPY DAYS ARE HERE AGAIN (Milton Ager)
-https://www.youtube.com/watch?v=Yiz6dSBWMxQ
-
-Lesson #403: JOY TO THE WORLD (Christmas Carol)
-https://www.youtube.com/watch?v=LdqdE-BHIt0
-
-Lesson #404: GOOD KING WENCESLAS (Christmas Carol)
-https://www.youtube.com/watch?v=ZvbOmRNXiEs
-
-Lesson #405: WHITE CHRISTMAS (Bing Crosby)
-https://www.youtube.com/watch?v=leScupHLluY
-
-Lesson #406: STOP THE CAVALRY (Jona Lewie)
-https://www.youtube.com/watch?v=tpNNvQLmjTs
-
-Lesson #407: GODDESSES (Country Dance/John Playford)
-https://www.youtube.com/watch?v=N26do3hMyXU
-
-Lesson #408: JINGLE BELLS
-https://www.youtube.com/watch?v=DI0wPXqstuI
-
-Lesson #409: FELIZ NAVIDAD (Jose Feliciano)
-https://www.youtube.com/watch?v=ylCkNp2LKMY
-
-Lesson #410: HIROSHIMA (Wishful Thinking)
-https://www.youtube.com/watch?v=gsi5ityIioE
-
-Lesson #411: HAVA NAGILA (Hebrew Folksong)
-https://www.youtube.com/watch?v=5DvATueDYXA
-
-Lesson #412: FLYING THROUGH THE AIR (Oliver Onions)
-https://www.youtube.com/watch?v=lS2VHQ4PvNY
-
-Lesson #413: ADESTE FIDELES (O Come All Ye Faithful)
-https://www.youtube.com/watch?v=T6YHOvzpoeQ
-
-Lesson #414: OH SUSANNA (Stephen Foster)
-https://www.youtube.com/watch?v=1l-uy-rarho
-
-Lesson #415 doesn't seem to exist.
-
-Lesson #416: IT'S MY LIFE (Bon Jovi)
-https://www.youtube.com/watch?v=WaJYmGYRMSI
-
-Lesson #417: THE RISING OF THE MOON (Irish Ballad)
-https://www.youtube.com/watch?v=Nrc8vt4W7kk
-
-Lesson #418: TI AMO (Umberto Tozzi)
-https://www.youtube.com/watch?v=vah7NCQmY_g
-
-Lesson #419: SUMM SUMM SUMM (Children's Song)
-https://www.youtube.com/watch?v=YObDX_PiN_I
-
-Lesson #420: EARLY MORNING RAG
-https://www.youtube.com/watch?v=X3TLhLN1v7k
-
-Lesson #421: DON'T WORRY, BE HAPPY (Bobby McFerrin)
-https://www.youtube.com/watch?v=nZtl5kh5eXc
-
-Lesson #422: DOVE'S FIGARY (English Country Dance)
-https://www.youtube.com/watch?v=36RL-MHf0LA
-
-Lesson #423: FOREVER YOUNG (Bob Dylan / Fast Version)
-https://www.youtube.com/watch?v=qexfnT6cP_A
-
-Lesson #424: THE WILD ROVER (Irish Traditional)
-https://www.youtube.com/watch?v=UnwmrZmDskw
-
-Lesson #425: WITH GOD ON OUR SIDE (Bob Dylan)
-https://www.youtube.com/watch?v=WK84Qj-7Vjg
-
-Lesson #426: I'LL TELL ME MA (Traditional)
-https://www.youtube.com/watch?v=OJ8CzbaJks0
-
-Lesson #427: MAIRI'S WEDDING (Scottish Folk Song)
-https://www.youtube.com/watch?v=HOo49Ssm2lg
-
-Lesson #428: DOWN ON THE CORNER (Creedence Clearwater Revival)
-https://www.youtube.com/watch?v=cD4B9YfE6po
-
-Lesson #429: CRIPPLE CREEK (Appalachian Folk Song)
-https://www.youtube.com/watch?v=KHP0as-6_Ww
-
-Lesson #430: WER HAT AN DER UHR GEDREHT? (Paulchen PantherTheme Song)
-https://www.youtube.com/watch?v=WygeMLBW28Y
-
-Lesson #431: BUDAPEST (George Ezra)
-https://www.youtube.com/watch?v=M6l4BspVn-M
-
-Lesson #432: O SOLE MIO / IT'S NOW OR NEVER (Traditional/Elvis Presley)
-https://www.youtube.com/watch?v=oje5YOVprLE
-
-Lesson #433: SHADY GROVE (Appalachian Folk Song)
-https://www.youtube.com/watch?v=NGunZJpFIWo
-
-Lesson #434: DEVOTED TO YOU (The Everly Brothers)
-https://www.youtube.com/watch?v=qpNmmL1HLzk
-
-Lesson #435: RIDERS ON THE STORM (The Doors)
-https://www.youtube.com/watch?v=XiMIJeIXnWM
-
-Lesson #436: ROCK MY SOUL (Gospel Song)
-https://www.youtube.com/watch?v=OKz_0yKEKu0
+* [Lesson #1: BOOKENDS (Paul Simon)](https://www.youtube.com/watch?v=_tzVXGpP3qk)
+* [Lesson #2: SCARBOROUGH FAIR (Simon & Garfunkel)](https://www.youtube.com/watch?v=qhVpMM2pLk4&t=9s)
+* Lesson #3: [HAPPY BIRTHDAY](./other/happy_birthday.md) (PDF, etc.)
+* [Lesson #4: TWINKLE TWINKLE LITTLE STAR](https://www.youtube.com/watch?v=lDTiKYPRo0A)
+* [Lesson #5: GUTEN ABEND, GUTE NACHT (Brahms Lullaby)](https://www.youtube.com/watch?v=AN8oMWdppG0)
+* [Lesson #6: MISTER SANDMAN](https://www.youtube.com/watch?v=-LM4cs6FLNM)
+* [Lesson #7: FOUR SEASONS (Antonio Vivaldi)](https://www.youtube.com/watch?v=O5vfiDRmw30)
+* [Lesson #8: NORWEGIAN WOOD ( The Beatles)](https://www.youtube.com/watch?v=GcSUi6pI-JA)
+* [Lesson #9: AND I LOVE HER (The Beatles)](https://www.youtube.com/watch?v=mZcfQ34tgBo)
+* [Lesson #10: FARE THEE WELL/THE LEAVING OF LIVERPOOL](https://www.youtube.com/watch?v=AlXwuGsOT6Q)
+* [Lesson #11: YOU ARE NOT ALONE (Michael Jackson)](https://www.youtube.com/watch?v=OduIKsaEszw)
+* [Lesson #12: WE SHALL OVERCOME](https://www.youtube.com/watch?v=xsyw9ljJJxo)
+* [Lesson #13: AULD LANG SYNE](https://www.youtube.com/watch?v=y3drAJ4t3GQ)
+* [Lesson #14: MUSS I DENN/WOODEN HEART](https://www.youtube.com/watch?v=D4SzFe9r5ec)
+* [Lesson #15: MORNING HAS BROKEN (Cat Stevens)](https://www.youtube.com/watch?v=035Jixlvo-8)
+* [Lesson #16: WITH A LITTLE HELP FROM MY FRIENDS (The Beatles)](https://www.youtube.com/watch?v=zOvbJQBLTJM)
+* [Lesson #17: SLOOP JOHN B: (The Beach Boys)](https://www.youtube.com/watch?v=xfM4fYnTGtk)
+* [Lesson #18: 21 GUNS (Green Day)](https://www.youtube.com/watch?v=q-ItUDFvGsI)
+* [Lesson #19: SACCO & VANZETTI/HERE'S TO YOU](https://www.youtube.com/watch?v=AeMQKoTlUFI)
+* [Lesson #20: MAKE YOU FEEL MY LOVE (Bob Dylan)](https://www.youtube.com/watch?v=0-hCGsINXkc)
+  * [Make You Feel My Love - Played At The DEAD SEA (Israel/Jordan/Palestine) - Ukulele Fingerstyle Solo](https://www.youtube.com/watch?v=7REEWYjyjy4)
+* [Lesson #21: GOING HOME (Antonin Dvorak)](https://www.youtube.com/watch?v=pe91hY3RtKo)
+* [Lesson #22: DOWN BY THE SALLY GARDENS](https://www.youtube.com/watch?v=9PPuJwaE-98)
+* [Lesson #23: STREETS OF LONDON (Ralph McTell)](https://www.youtube.com/watch?v=xM9fzYBgEAc)
+* [Lesson #24: LOVE IS ALL AROUND (The Troggs/Wet Wet Wet)](https://www.youtube.com/watch?v=VHw5QT0JpZY)
+* [Lesson #25: BROTHER SUN & SISTER MOON (Donovan)](https://www.youtube.com/watch?v=WC9cTTKpx-I)
+* [Lesson #26: HAM KUMMST (Seiler & Speer) - Akkorde/Zupfmuster](https://www.youtube.com/watch?v=No0NUXlL584)
+* [Lesson #27: STAIRWAY TO HEAVEN (Led Zeppelin)](https://www.youtube.com/watch?v=5VHht3el-LQ)
+* [Lesson #28: WAKE ME UP WHEN SEPTEMBER ENDS (Green Day)](https://www.youtube.com/watch?v=_PCOVzGoNVI)
+* [Lesson #29: PUFF THE MAGIC DRAGON (Peter, Paul & Mary)](https://www.youtube.com/watch?v=s6kT09-gQxo)
+* [Lesson #30: LADY IN BLACK (Uriah Heep)](https://www.youtube.com/watch?v=w5cmiUa6jGY)
+* [Lesson #31: AS TEARS GO BY (The Rolling Stones)](https://www.youtube.com/watch?v=LR7-3GaBIIg)
+* [Lesson #32: FEELIN' GROOVY (Simon & Garfunkel)](https://www.youtube.com/watch?v=SrRBx9ohrl4)
+* [Lesson #33: LET HER GO (Passenger)](https://www.youtube.com/watch?v=Q52xIaKeIUo)
+* [Lesson #34: MAD WORLD (Gary Jules)](https://www.youtube.com/watch?v=OPdg2IttXUU)
+* [Lesson #44: YOU ARE MY SUNSHINE](https://www.youtube.com/watch?v=ldjXmhmsggM)
+* [Lesson #45: HEART OF GOLD (Neil Young)](https://www.youtube.com/watch?v=IuxaOijL-wk)
+* [Lesson #46: I'LL FLY AWAY](https://www.youtube.com/watch?v=cogk9lDgiBQ)
+* [Lesson #47: BOULEVARD OF BROKEN DREAMS (Green Day)](https://www.youtube.com/watch?v=z5V156Vuytg)
+* Lesson numbers jump from #47 to #44
+* [Lesson #44: KUMBAYA](https://www.youtube.com/watch?v=7VPqyAqfhQY)
+* [Lesson #45: STILL, STILL, STILL (Austrian Lullaby)](https://www.youtube.com/watch?v=YVCZwNnq8JU)
+  * [CHRISTMAS Ukulele #11: STILL, STILL, STILL](https://www.youtube.com/watch?v=GznDrtAggfU)
+* [Lesson #46: LILI MARLEEN](https://www.youtube.com/watch?v=zdPSLcyAygQ)
+* [Lesson #47: WILD MOUNTAIN THYME (Scotish Traditional)](https://www.youtube.com/watch?v=RXyDQudbHcs)
+* [Lesson #48: ZOMBIE (The Cranberries)](https://www.youtube.com/watch?v=Q_9InRZ6xMg)
+* [Lesson #49: THIS LAND IS YOUR LAND](https://www.youtube.com/watch?v=xgkTi7N_0sk)
+* [Lesson #50: MARY'S BOY CHILD](https://www.youtube.com/watch?v=smV6NQUKRq4)
+  * [MARY'S BOY CHILD - Fingerstyle Ukulele](https://www.youtube.com/watch?v=M2sppADkSc4)
+* [Lesson #51: DONNA DONNA](https://www.youtube.com/watch?v=5_PcpAy4qtA)
+* [Lesson #52: GREENSLEEVES](https://www.youtube.com/watch?v=iNUKG5FhYus)
+* [Lesson #53: SOUND OF SILENCE (Simon & Garfunkel)](https://www.youtube.com/watch?v=UYm-NzQL1gE)
+  * [THE SOUND OF SILENCE (Simon & Garfunkel) - Fingerstyle Ukulele](https://www.youtube.com/watch?v=xReb7IedafQ)
+* [Lesson #54: WHY WORRY (Mark Knopfler/Dire Straits)](https://www.youtube.com/watch?v=JLp2GkAHqTA)
+* [Lesson #55: FOR HE'S A JOLLY GOOD FELLOW](https://www.youtube.com/watch?v=qpOFKWdt2CU)
+* [Lesson #56: BLOWING IN THE WIND (Bob Dylan)](https://www.youtube.com/watch?v=2m-cD2ZvJKw)
+* [Lesson #57: 500 MILES (AWAY FROM HOME)](https://www.youtube.com/watch?v=Xyq99ywah3A)
+* [Lesson #58: FREIGHT TRAIN](https://www.youtube.com/watch?v=rJAlJcLQOcg)
+* [Lesson #59: LOCH LOMOND](https://www.youtube.com/watch?v=ltADwPA_rxc)
+* [Lesson #60: WHISKEY IN THE JAR](https://www.youtube.com/watch?v=MJwvsrWTG_8)
+* [Lesson #61: HOUSE OF THE RISING SUN](https://www.youtube.com/watch?v=Xgq3A5UkR6Q)
+* [Lesson #62: EINE KLEINE NACHTMUSIK (Wolfgang Amadeus Mozart)](https://www.youtube.com/watch?v=60HJksoiQwI)
+* [Lesson #63: THIS OLD MAN](https://www.youtube.com/watch?v=8ZUQEVU5CDI)
+* [Lesson #64: LANG, LANG IST'S HER (LONG, LONG AGO)](https://www.youtube.com/watch?v=v4RG0BN3Cp8)
+* [Lesson #65: TOM DOOLEY](https://www.youtube.com/watch?v=PUXkLlmNcX0)
+* [Lesson #66: ISLAND IN THE SUN (Harry Belafonte)](https://www.youtube.com/watch?v=Z91bu7iiK68)
+* [Lesson #67: FÜR ELISE (Ludwig van Beethoven)](https://www.youtube.com/watch?v=50uFJLLcAMI)
+* [Lesson #68: MOONLIGHT SHADOW (Mike Oldfield)](https://www.youtube.com/watch?v=mgvfrBcleQ0)
+* [Lesson #69: WILL THE CIRCLE BE UNBROKEN](https://www.youtube.com/watch?v=g7u5wYlCYk8)
+* [Lesson #70: FREE FALLIN' (Tom Petty)](https://www.youtube.com/watch?v=M5u3NdERYrc)
+* [Lesson #71: FIELDS OF GOLD](https://www.youtube.com/watch?v=c9Q9Dbj2xs4)
+  * [Fields Of Gold (Sting) - Fingerstyle Ukulele / WALDVIERTEL #6](https://www.youtube.com/watch?v=hs4f63oB3CE)
+* [Lesson #72: SAILING (Rod Stewart)](https://www.youtube.com/watch?v=Rb-Sy-pDl0Y)
+* [Lesson #73: SUNDAY MORNING (The Velvet Underground)](https://www.youtube.com/watch?v=ld8uXMf1Z3o)
+* Lesson #74: [IMAGINE (John Lennon)](./john_lennon/imagine.md) (PDF, etc.)
+* [Lesson #75: LOSING MY RELIGION (R.E.M)](https://www.youtube.com/watch?v=HzmsE6eUNqM)
+* [Lesson #76: LIGHT MY FIRE (The Doors)](https://www.youtube.com/watch?v=5-koLl-oBBc)
+* [Lesson #77: LA SERENISSIMA (Loreena McKennitt)](https://www.youtube.com/watch?v=THon-ke7lVA)
+  * [La Serenissima (Loreena McKennitt) - Fingerstyle Ukulele](https://www.youtube.com/watch?v=X34GpIZt5d8)
+* [Lesson #78: BAD MOON RISING (CCR)](https://www.youtube.com/watch?v=vdFlVHdCaHo)
+* [Lesson #79: LOVE MINUS ZERO (Bob Dylan)](https://www.youtube.com/watch?v=dae33U5HMyM)
+* [Lesson #80: PINK PANTHER (Henry Mancini)](https://www.youtube.com/watch?v=HKUUsUVIAnQ)
+* [Lesson #81: DANNY BOY (LONDONDERRY AIR)](https://www.youtube.com/watch?v=Eo7g_aypmvk)
+* [Lesson #82: MOON RIVER (Henry Mancini)](https://www.youtube.com/watch?v=vWucfFk0xGg)
+* [Lesson #83: GUANTANAMERA](https://www.youtube.com/watch?v=6jp8YwbdJXU)
+* [Lesson #84: GO WEST (Village People/Pet Shop Boys)](https://www.youtube.com/watch?v=cj6m_x8YFG8)
+* [Lesson #85: PEOPLE GET READY](https://www.youtube.com/watch?v=PS8ycas3fic)
+* [Lesson #86: THE SOUTH WIND (Irish Tune)](https://www.youtube.com/watch?v=cO_cjPAoaPU)
+* [Lesson #87: KING OF THE ROAD](https://www.youtube.com/watch?v=uLbvLawVCTs)
+* [Lesson #88: MELLOW YELLOW (Donovan)](https://www.youtube.com/watch?v=SHIYkhlCTOs)
+* [Lesson #89: HERE COMES THE BRIDE (Richard Wagner)](https://www.youtube.com/watch?v=s_yDj62W8lg)
+* [Lesson #90: SONATA IN A MAJOR (Wolfgang Amadeus Mozart)](https://www.youtube.com/watch?v=WIGgsil7IGg)
+* [Lesson #91: PLANXTY IRWIN (Irish Tune)](https://www.youtube.com/watch?v=0ovWbjCkdBk)
+* [Lesson #92: SCHNEEWALZER](https://www.youtube.com/watch?v=pyTgPEBXo24)
+* [Lesson #93: DAT DU MIN LEEVSTEN BÜST](https://www.youtube.com/watch?v=nr7lHM-tApg)
+* [Lesson #94: KATYUSHA (Russian Lovesong)](https://www.youtube.com/watch?v=rvfGN4U4z5s)
+* [Lesson #95: NOBODY KNOWS THE TROUBLE I'VE SEEN (Spiritual)](https://www.youtube.com/watch?v=cyDkHhEfvas)
+* [Lesson #96: DIE LORELEY (Deutsches Volkslied)](https://www.youtube.com/watch?v=ED3b0Yu_9UY)
+* [Lesson #97: LORD OF THE DANCE (Simple Gifts)](https://www.youtube.com/watch?v=oNxT0M8uIQg)
+* [Lesson #98: YOU AIN'T GOIN' NOWHERE (Bob Dylan)](https://www.youtube.com/watch?v=IfDEIvBwLrw)
+* [Lesson #99: SERENADE (Joseph Haydn)](https://www.youtube.com/watch?v=yfeBIdYKOnE)
+* [Lesson #100: ODE TO JOY / ODE AN DIE FREUDE (Ludwig van Beethoven)](https://www.youtube.com/watch?v=c_N5irYfjwg)
+* [Lesson #101: Mr. TAMBOURINE MAN (Bob Dylan)](https://www.youtube.com/watch?v=JeNaEoPTnCc)
+* [Lesson #102: BANG BANG (Nancy Sinatra)](https://www.youtube.com/watch?v=XRJSRBWb7mU)
+* [Lesson #103: YOU BELONG TO ME (Bob Dylan)](https://www.youtube.com/watch?v=iOC9Y7IGVVw)
+* [Lesson #104: LET IT BE ME (The Everly Brothers)](https://www.youtube.com/watch?v=M9j2kSTWv5s)
+* [Lesson #105: LES CHAMPS-ELYSSES (Joe Dassin)](https://www.youtube.com/watch?v=wjepul_bFkg)
+* [Lesson #106: IN MY PLACE (Coldplay)](https://www.youtube.com/watch?v=hpc0Ed0AToo)
+* [Lesson #107: FIX YOU (Coldplay)](https://www.youtube.com/watch?v=z8RDGAtxrJs)
+* [Lesson #108: A GROOVY KIND OF LOVE (Phil Collins)](https://www.youtube.com/watch?v=oR_-A_gpn6k)
+* [Lesson #109: THE BOOK OF LOVE (Peter Gabriel)](https://www.youtube.com/watch?v=yWIxETtbXxM)
+* [Lesson #110: TIME AFTER TIME (Cyndi Lauper)](https://www.youtube.com/watch?v=6AF1YULBV6U)
+* [Lesson #111: QUE SERA SERA (Doris Day)](https://www.youtube.com/watch?v=XeO-QfwG0zs)
+* [Lesson #112: MACK THE KNIFE/MACKIE MESSER (Bert Brecht/Kurt Weill)](https://www.youtube.com/watch?v=ygiF3hlEAlQ)
+* [Lesson #113: WIND OF CHANGE (Scorpions)](https://www.youtube.com/watch?v=HIceTOWZ9NM)
+* [Lesson #114: HALLELUJAH (Leonard Cohen)](https://www.youtube.com/watch?v=qp3wcmySXQc)
+* [Lesson #115: DAS MODEL (Kraftwerk)](https://www.youtube.com/watch?v=8PIXiwrIj9c)
+* [Lesson #116: THOSE WERE THE DAYS (Mary Hopkin)](https://www.youtube.com/watch?v=NwMM50GSNaA)
+* [Lesson #117: SEALED WITH A KISS (Brian Hyland)](https://www.youtube.com/watch?v=uz0djt1ie6U)
+* [Lesson #118: IN DIE BERG BIN I GERN (Kärntner Volkslied)](https://www.youtube.com/watch?v=wUM-Hjc088o)
+* [Lesson #119: MY BONNIE LIES OVER THE OCEAN](https://www.youtube.com/watch?v=M7MPLV5GDHA)
+* [Lesson #120: GOD SAVE THE QUEEN ( National Anthem of The United Kingdom)](https://www.youtube.com/watch?v=LIAOZDjtA1U)
+* [Lesson #121: KNOCKING ON HEAVEN'S DOOR (Bob Dylan)](https://www.youtube.com/watch?v=PvjqLjbAt3g)
+* [Lesson #122: I WANT YOU (Bob Dylan)](https://www.youtube.com/watch?v=g-AkidUDcqM)
+* [Lesson #123: AFTER THE GOLDRUSH (Neil Young)](https://www.youtube.com/watch?v=6hNPxxiY8RI)
+* [Lesson #124: WHAT A WONDERFUL WORLD (Louis Armstrong)](https://www.youtube.com/watch?v=fRNybge-XJY)
+* [Lesson #125: FOLSOM PRISON BLUES (Johnny Cash)](https://www.youtube.com/watch?v=N4OKJdKOCE4)
+* [Lesson #126: GASOLINE ALLEY (Rod Stewart)](https://www.youtube.com/watch?v=jLFcAwpSax8)
+* [Lesson #127: ANNIE'S SONG (John Denver)](https://www.youtube.com/watch?v=6CRsCwiZo_Y)
+* [Lesson #128: JAMBALAYA (Hank Williams)](https://www.youtube.com/watch?v=uoO5ZSfCv3w)
+* [Lesson #129: THE WATER IS WIDE (Scottish Traditional)](https://www.youtube.com/watch?v=AW0YN_6QSVs)
+* [Lesson #130: HERE COMES THE SUN (George Harrison/The Beatles)](https://www.youtube.com/watch?v=OzVOQBQ3etk)
+* [Lesson #131: AN ANGEL (The Kelly Family)](https://www.youtube.com/watch?v=dBilDHpiLCk)
+* [Lesson #132: ONE OF US (Joan Osborne)](https://www.youtube.com/watch?v=46uAN4orhlg)
+* [Lesson #133: LEAVING ON A JET PLANE (John Denver)](https://www.youtube.com/watch?v=KPCMzeAu95A)
+* [Lesson #134: St. JAMES INFIRMARY](https://www.youtube.com/watch?v=hHJf3T5Qy2E)
+* [Lesson #135: EARTH SONG (Michael Jackson)](https://www.youtube.com/watch?v=xOQdgNxeicc)
+* [Lesson #136: SWAY (Dean Martin)](https://www.youtube.com/watch?v=_ppBaffLlww)
+* [Lesson #137: PACKINGTON'S POUND (Renaissance Lute Music)](https://www.youtube.com/watch?v=tYWpX_9bCfs)
+* [Lesson #138: IN THE SUMMERTIME (Mungo Jerry)](https://www.youtube.com/watch?v=zcc5jXxOZec)
+* [Lesson #139: DOWNTOWN (Petula Clark)](https://www.youtube.com/watch?v=V8c4c2SpjEA)
+* [Lesson #140: NJOSNAVELIN (Sigur Ros)](https://www.youtube.com/watch?v=ooHGqiVrPjk)
+* [Lesson #141: WEIT WEIT WEG (Hubert von Goisern)](https://www.youtube.com/watch?v=7jdPqGZdbgs)
+* [Lesson #142: MINUET IN G (Bach/Petzold)](https://www.youtube.com/watch?v=LM3ZT3uhvHY)
+* [Lesson #143: KILLING ME SOFTLY (Roberta Flack)](https://www.youtube.com/watch?v=ZVusroLi6gA)
+* [Lesson #144: EIN STERN, DER DEINEN NAMEN TRÄGT](https://www.youtube.com/watch?v=ZkvavQXcGuA)
+* [Lesson #145: MOLLY MALONE (Irish Traditional)](https://www.youtube.com/watch?v=z663EzH7CME)
+* [Lesson #146: AMAZING GRACE](https://www.youtube.com/watch?v=2QSSRNpN_zM)
+* [Lesson #147: CAN'T HELP FALLING IN LOVE](https://www.youtube.com/watch?v=l7zDuvoF1WM)
+* [Lesson #148: LOVE ME DO (The Beatles)](https://www.youtube.com/watch?v=4nBp3QtWXHY)
+* [Lesson #149: LOVE ME TENDER (Elvis Presley)](https://www.youtube.com/watch?v=xoQgBUAV0Ew)
+* [Lesson #150: GIRL FROM THE NORTH COUNTRY (Bob Dylan)](https://www.youtube.com/watch?v=PaV4JddLbhI)
+* [Lesson #151: RING OF FIRE (Johnny Cash)](https://www.youtube.com/watch?v=PnlVS71oNDA)
+* [Lesson #152: THE LION SLEEPS TONIGHT](https://www.youtube.com/watch?v=ZVdpG0WQLWM)
+* [Lesson #153: FLY ME TO THE MOON](https://www.youtube.com/watch?v=0ksuGNH5930)
+* [Lesson #154: FAREWELL TAE TARWATHIE](https://www.youtube.com/watch?v=XiyO2f-iMdo)
+* [Lesson #155: NO WOMAN NO CRY (Bob Marley)](https://www.youtube.com/watch?v=G4a3s6lz1Hc)
+* [Lesson #156: THE SPANISH LADY (Irish Traditional)](https://www.youtube.com/watch?v=8qp2WPn1KTc)
+* [Lesson #157: LET IT BE (The Beatles)](https://www.youtube.com/watch?v=2PAVjVuFoNo)
+* [Lesson #158: FRIDAY I'M IN LOVE (The Cure)](https://www.youtube.com/watch?v=_JvxbmYx8Zs)
+* [Lesson #159: NUMB (Linkin Park)](https://www.youtube.com/watch?v=7-6xj1CZRkA)
+* [Lesson #160: O'KEEFE'S SLIDE (Irish Traditional)](https://www.youtube.com/watch?v=RGdNHSPEfTk)
+* [Lesson #161: BELLA CIAO](https://www.youtube.com/watch?v=zIe0UnTocS0)
+* [Lesson #162: WINTER WONDERLAND](https://www.youtube.com/watch?v=CloVNAIJFRk)
+* [Lesson #163: LAMBADA](https://www.youtube.com/watch?v=lNI2vVOLhfA)
+* [Lesson #164: LEISE RIESELT DER SCHNEE](https://www.youtube.com/watch?v=eW4eQpAZuK4)
+* [Lesson #165: ALWAYS WITH ME (Spirited Away)](https://www.youtube.com/watch?v=lL1x8lrkhvs)
+* [Lesson #166: STILL GOT THE BLUES (Gary Moore)](https://www.youtube.com/watch?v=qB4b_MLvniA)
+* [Lesson #167: SPANISH ROMANCE](https://www.youtube.com/watch?v=-Ft3LXGDQJc)
+* [Lesson #168: HO HEY (The Lumineers)](https://www.youtube.com/watch?v=TlRrMOg4wfI)
+* [Lesson #169: TRUE COLORS (Cyndi Lauper)](https://www.youtube.com/watch?v=a2CkTIsp43I)
+* [Lesson #170: JOHN BARLEYCORN (English Ballad)](https://www.youtube.com/watch?v=8agoWmKt0a0)
+* [Lesson #171: SAD LISA (Cat Stevens)](https://www.youtube.com/watch?v=QoQmmJOE6R0)
+* [Lesson #172: THE LAST THING ON MY MIND (Tom Paxton)](https://www.youtube.com/watch?v=zC_ZWrqUscs)
+* [Lesson #173: SUN OF JAMAICA (Goombay Dance Band)](https://www.youtube.com/watch?v=_M5NGrKoiK8)
+* [Lesson #174: GROW OLD WITH YOU (Adam Sandler)](https://www.youtube.com/watch?v=-nCoa14yeGQ)
+* [Lesson #175: SOMEWHERE OVER THE RAINBOW](https://www.youtube.com/watch?v=HFK7wJmZ1g4)
+* [Lesson #176: CAN YOU FEEL THE LOVE TONIGHT (The Lion King)](https://www.youtube.com/watch?v=DrKsJLMG770)
+* [Lesson #177: I WANNA BE LIKE YOU (The Jungle Book)](https://www.youtube.com/watch?v=NGCAWQ6Cg1Y)
+* [Lesson #178: COUNTRY GARDENS (English Folk Song)](https://www.youtube.com/watch?v=M45gUZXU-Zc)
+* [Lesson #179: DIRTY OLD TOWN (Ewan MacColl)](https://www.youtube.com/watch?v=UI-_CtwzngE)
+* [Lesson #180: MICHAEL ROW THE BOAT ASHORE (Spiritual)](https://www.youtube.com/watch?v=zpd_Pa6MPMY)
+* [Lesson #181: ABIDE WITH ME (Christian Hymn)](https://www.youtube.com/watch?v=Ocj3KI29jac)
+* [Lesson #182: BASKET CASE (Green Day)](https://www.youtube.com/watch?v=SgjNAG7-QXI)
+* [Lesson #183: CALIFORNICATION (Red Hot Chili Peppers)](https://www.youtube.com/watch?v=itTsNfX74hc)
+* [Lesson #184: THE LARK IN THE MORNING (English Folk Song)](https://www.youtube.com/watch?v=nIa-RKTWDSU)
+* [Lesson #185: MENUETT (Johann Krieger)](https://www.youtube.com/watch?v=8JFmWiLcDoM)
+* [Lesson #186: CHARIOTS OF FIRE (Vangelis)](https://www.youtube.com/watch?v=B_LEImyaX3A)
+* [Lesson #187: MARY HAMILTON (Scottish Ballad)](https://www.youtube.com/watch?v=J536gTslmgY)
+* [Lesson #188: STRAYAWAY CHILD (Irish Traditional)](https://www.youtube.com/watch?v=9Ns3m59YZSM)
+* [Lesson #189: SUMMER OF 69 (Bryan Adams)](https://www.youtube.com/watch?v=tB5DKSmdrZ0)
+* [Lesson #190: LA VIE EN ROSE (Edith Piaf)](https://www.youtube.com/watch?v=eihcNeflPjo)
+* [Lesson #191: CHAN CHAN (Buena Vista Social Club)](https://www.youtube.com/watch?v=39jQ2wPOS0o)
+* [Lesson #192: I HAVE A DREAM (ABBA)](https://www.youtube.com/watch?v=P2MzKgqSaC4)
+* [Lesson #193: TEQUILA (The Champs)](https://www.youtube.com/watch?v=QsXUmioWZmg)
+* [Lesson #194: ALL I HAVE TO DO IS DREAM (Everly Brothers)](https://www.youtube.com/watch?v=cyA86xtE8Fg)
+* [Lesson #195: SAMBA PA TI (Carlos Santana)](https://www.youtube.com/watch?v=MbtS9B4_J4I)
+* [Lesson #196: RAINDROPS KEEP FALLING ON MY HEAD (BJ Thomas)](https://www.youtube.com/watch?v=dTrcD1IWK-c)
+* [Lesson #197: BROTHERS IN ARMS (Mark Knopfler/Dire Straits)](https://www.youtube.com/watch?v=Wz0rDSrtCDM)
+* [Lesson #198: MIDNIGHT IN MOSCOW](https://www.youtube.com/watch?v=JzAP51wlH_M)
+* [Lesson #199: MASSACHUSETTS (Bee Gees)](https://www.youtube.com/watch?v=FlcZf4WS-GA)
+* [Lesson #200: SEE YOU AGAIN (Wiz Khalifa ft. Charly Puth)](https://www.youtube.com/watch?v=ddYsZvRO5-A)
+* [Lesson #201: LA CUCARACHA](https://www.youtube.com/watch?v=XQNyLV7dGBA)
+* [Lesson #202: WHEN JOHNNY COMES MARCHING HOME](https://www.youtube.com/watch?v=ldyKEWzPImU)
+* [Lesson #206: I WILL FOLLOW YOU INTO THE DARK (Death Cab For Cutie)](https://www.youtube.com/watch?v=z3ktUFDhEg8)
+* [Lesson #207: YOU RAISE ME UP](https://www.youtube.com/watch?v=DG0kp-pCga0)
+* [Lesson #208: DARK EYES](https://www.youtube.com/watch?v=atOkOB3WkL8)
+* [Lesson #209: YESTERDAY (The Beatles)](https://www.youtube.com/watch?v=CZAYvTQhjR4)
+* [Lesson #210: THE LAST ROSE OF SUMMER](https://www.youtube.com/watch?v=sEbufnAdibE)
+* [Lesson #211: DON'T THINK TWICE IT'S ALL RIGHT (Bob Dylan)](https://www.youtube.com/watch?v=5wfMRQue4GM)
+* [Lesson #212: GET BACK (The Beatles)](https://www.youtube.com/watch?v=oqTmw8oM_Y0)
+* [Lesson #213: HEY JUDE (The Beatles)](https://www.youtube.com/watch?v=8wAdFdmLGVM)
+* [Lesson #214: A HARD DAY'S NIGHT (The Beatles)](https://www.youtube.com/watch?v=uxXA8YnMObo)
+* [Lesson #215: SOMETHING (The Beatles)](https://www.youtube.com/watch?v=kPCrYxc4QkI)
+* [Lesson #216: IF I NEEDED YOU (Townes van Zandt)](https://www.youtube.com/watch?v=QnXyLNR3A8A)
+* [Lesson #217: PAINT IT BLACK (The Rolling Stones)](https://www.youtube.com/watch?v=kpHwN64dVGs)
+* [Lesson #218: ANOTHER BRICK IN THE WALL (Pink Floyd)](https://www.youtube.com/watch?v=ciuYHq-418w)
+* [Lesson #219: NOBODY KNOWS YOU WHEN YOU'RE DOWN AND OUT (Eric Clapton)](https://www.youtube.com/watch?v=8xMG2UBEg0U)
+* [Lesson #220: LA-LE-LU (German Lullaby)](https://www.youtube.com/watch?v=GRkbuTXgzQU)
+* [Lesson #221: GAMES PEOPLE PLAY (Joe South)](https://www.youtube.com/watch?v=vMa_aXaBI9E)
+* [Lesson #222: FACTORY (Bruce Springsteen)](https://www.youtube.com/watch?v=YMu6fZe-GbY)
+* [Lesson #223: MY HOMETOWN (Bruce Springsteen)](https://www.youtube.com/watch?v=VKfR-cI39Vo)
+* [Lesson #224: BOTTLE OF WINE (Tom Paxton)](https://www.youtube.com/watch?v=pz2j7PFIk_M)
+* [Lesson #225: ME AND BOBBY McGEE (Kris Kristofferson)](https://www.youtube.com/watch?v=z2PL0IRVHTk)
+* [Lesson #226: ELEANOR RIGBY (The Beatles)](https://www.youtube.com/watch?v=Hu78Hxm9gjY)
+* [Lesson #227: SMOKE ON THE WATER (Deep Purple)](https://www.youtube.com/watch?v=U9S5ApcyYeA)
+* [Lesson #228: WEISST DU WIEVIEL STERNLEIN STEHEN (German Lullaby)](https://www.youtube.com/watch?v=OBYz75SGkik)
+* [Lesson #229: GUARANTEED (Eddie Vedder)](https://www.youtube.com/watch?v=AnfkYu9_bZg)
+* [Lesson #230: STAND BY ME - Song Accompaniment](https://www.youtube.com/watch?v=CnvprMQ0gjI)
+* [Lesson #231: FOREVER YOUNG (Alphaville)](https://www.youtube.com/watch?v=_eayTpCHRf4)
+* [Lesson #232: HAVE YOU EVER SEEN THE RAIN (CCR)](https://www.youtube.com/watch?v=EcvhHfccSCU)
+* [Lesson #233: 'TIS SO SWEET TO TRUST IN JESUS (Christian Hymn)](https://www.youtube.com/watch?v=vP9kQ3ydT2E)
+* [Lesson #234: I WALK THE LINE (Johnny Cash)](https://www.youtube.com/watch?v=j0bfjCS1wrg)
+* [Lesson #235: THREE LITTLE BIRDS (Bob Marley)](https://www.youtube.com/watch?v=o5kegfNSbbo)
+* [Lesson #236: HURT (Nine Inch Nails/Johnny Cash)](https://www.youtube.com/watch?v=4m9_XnGN5sE&t=112s)
+* [Lesson #237: SUN OF JAMAICA (Goombay Dance Band)](https://www.youtube.com/watch?v=TxzBIC18Y2M)
+* [Lesson #238: WE WILL ROCK YOU (Queen)](https://www.youtube.com/watch?v=2pSfgRPLPwk)
+* [Lesson #239: MARY HAMILTON (Scottish Ballad)](https://www.youtube.com/watch?v=tsedqQCBG5w)
+* [Lesson #240: DANS FISEL (Breton Dance Tune)](https://www.youtube.com/watch?v=ao8oBhUO_lo)
+* [Lesson #241: KALINKA (Russian Song)](https://www.youtube.com/watch?v=mH7qb1v8UH8)
+* [Lesson #242: DIANA (Paul Anka)](https://www.youtube.com/watch?v=R_sRq6oKaLQ)
+* [Lesson #243: THE ROSE (Betty Midler)](https://www.youtube.com/watch?v=Vu5T_ILQ114)
+* [Lesson #244: IRISH WEDDING (Irish Traditional)](https://www.youtube.com/watch?v=wUYyc3y0yqw)
+* [Lesson #245: RODDY McCORLEY (Irish Song)](https://www.youtube.com/watch?v=BRtqubFd8oI)
+* [Lesson #246: RED IS THE ROSE (Irish Traditional)](https://www.youtube.com/watch?v=3dAxft4eoNQ)
+* [Lesson #247: TANGO TO EVORA (Loreena McKennitt)](https://www.youtube.com/watch?v=suM7BD9ODmM)
+* [Lesson #248: EL CONDOR PASA (Peruvian Folk Song)](https://www.youtube.com/watch?v=5VovZeXzEfs)
+* [Lesson #249: BEI MIR BIST DU SCHÖN (Jiddish Song)](https://www.youtube.com/watch?v=MRaL6bemK4o)
+* [Lesson #250: DONAUWALZER (Blue Danube Waltz/Johann Strauss)](https://www.youtube.com/watch?v=e2vc5ePApus)
+* [Lesson #251: ONLY A HOBO (Bob Dylan)](https://www.youtube.com/watch?v=PRGlT-jXXI8)
+* [Lesson #252: ROXBOROUGH CASTLE (Scottish Traditional)](https://www.youtube.com/watch?v=0p0XSnv9ztE)
+* [Lesson #253: ACROSS THE UNIVERSE (The Beatles)](https://www.youtube.com/watch?v=GfObxOiD2E0)
+* [Lesson #254: THE QUIET LAND OF ERIN (Irish Traditional)](https://www.youtube.com/watch?v=XM276E3bVvc)
+* [Lesson #255: TURN TURN TURN (Pete Seeger/The Byrds)](https://www.youtube.com/watch?v=UppH9pMamow)
+* [Lesson #256: LADY D'ARBANVILLE (Cat Stevens)](https://www.youtube.com/watch?v=ll-so7Ik8us)
+* [Lesson #257: SWEET HOME ALABAMA (Lynyrd Skynyrd)](https://www.youtube.com/watch?v=xBkdC0xfioA)
+* [Lesson #258: ZEHN KLEINE JÄGERMEISTER (Die Toten Hosen)](https://www.youtube.com/watch?v=SEBCweh1TLU)
+* [Lesson #259: DER MOND IST AUFGEGANGEN (German Lullaby)](https://www.youtube.com/watch?v=UB0lTUvqqTg)
+* [Lesson #260: THE TIMES THEY ARE A-CHANGIN' (Bob Dylan)](https://www.youtube.com/watch?v=NHaqTUesq6I)
+* [Lesson #261: DEATH OF A CLOWN (Dave Davies/The Kinks)](https://www.youtube.com/watch?v=966uuEgtJpA)
+* [Lesson #262: PENELOPE'S SONG (Loreena McKennitt)](https://www.youtube.com/watch?v=c92zUIfpbG8)
+* [Lesson #263: THE WANDERER (Dion)](https://www.youtube.com/watch?v=TYAvDt17NtY)
+* [Lesson #264: WHISPERING (Jazz Standard)](https://www.youtube.com/watch?v=yFH3ZByXH2I)
+* [Lesson #265: DIE GEDANKEN SIND FREI (German Traditional/Pete Seeger))](https://www.youtube.com/watch?v=0Txtm2W5uNE)
+* [Lesson #266: ALLEMANDE (Medieval Tune)](https://www.youtube.com/watch?v=xEAG5KEcecs)
+* [Lesson #267: DREAM A LITTLE DREAM OF ME (The Mamas And The Papas)](https://www.youtube.com/watch?v=diNgUoSOHeU)
+* [Lesson #268: THE SHEARING'S NOT FOR YOU (Scottish Traditional)](https://www.youtube.com/watch?v=MQK-7SfdBIQ)
+* [Lesson #269: THE SCIENTIST (Coldplay)](https://www.youtube.com/watch?v=zsBPYwCLZGk)
+* [Lesson #270: COUNTRY ROADS (John Denver / PART 1)](https://www.youtube.com/watch?v=JhOh4f1llU8)
+* [Lesson #271: COUNTRY ROADS (John Denver / PART 2)](https://www.youtube.com/watch?v=htLo65RvjaY)
+* [Lesson #272: MY WAY (Frank Sinatra/Main Theme)](https://www.youtube.com/watch?v=TfNIvAGH5zM)
+* [Lesson #273: NEVER ENDING ROAD (Loreena McKennitt)](https://www.youtube.com/watch?v=9Ia_RNXY4so)
+* [Lesson #274: SUNSHINE OF YOUR LOVE (Cream/Eric Clapton)](https://www.youtube.com/watch?v=fQOZgc3oscY)
+* [Lesson #275: OH SUSANNA (Minstrel Song)](https://www.youtube.com/watch?v=blx8MPTS5DM)
+* [Lesson #276: ONE MORE CITY (Colin Wilkie/Hannes Wader)](https://www.youtube.com/watch?v=Ag7QUleefIA)
+* [Lesson #277: EVERY BREATH YOU TAKE (The Police / PART 1)](https://www.youtube.com/watch?v=CpASUpRdjF8)
+* [Lesson #278: EVERY BREATH YOU TAKE (The Police / PART 2)](https://www.youtube.com/watch?v=STWlv8dwJZM)
+* [Lesson #279: WHAT SHALL WE DO WITH A DRUNKEN SAILOR (Shanty)](https://www.youtube.com/watch?v=FHVSKv9AL2I)
+* [Lesson #280: WHEN THE SAINTS GO MARCHING IN (Spiritual)](https://www.youtube.com/watch?v=ILAdbMpqKP0)
+* [Lesson #281: HE'S GOT THE WHOLE WORLD IN HIS HANDS (American Spiritual)](https://www.youtube.com/watch?v=AXEFis6eyio)
+* [Lesson #282: FIVE FOOT TWO, EYES OF BLUE](https://www.youtube.com/watch?v=Wsgq4slmMJM)
+* [Lesson #283: FÜRSTENFELD (STS / PART 1)](https://www.youtube.com/watch?v=MdcRqsMJ6I8)
+* [Lesson #284: FÜRSTENFELD (STS / PART 2)](https://www.youtube.com/watch?v=svby7pnNujU)
+* [Lesson #285: 20th CENTURY FOX FANFARE](https://www.youtube.com/watch?v=pBPgSFhh7yw)
+* [Lesson #286: HARD TIMES (Stephen Foster)](https://www.youtube.com/watch?v=4132Owg3Zjs)
+* [Lesson #287: ROCKIN' ALL OVER THE WORLD (John Fogerty/Status Quo)](https://www.youtube.com/watch?v=h1vPWswiyxg)
+* [Lesson #288: IT'S A HEARTACHE (Bonnie Tyler)](https://www.youtube.com/watch?v=pCswBsuddrc)
+* [Lesson #289: INISHEER (Thomas Walsh)](https://www.youtube.com/watch?v=oVYhJXQxt50)
+* [Lesson #290: HEY HEY, MY MY (Neil Young)](https://www.youtube.com/watch?v=uex4ZnDrS9U)
+* [Lesson #291: BESAME MUCHO (Consuelo Velazquez)](https://www.youtube.com/watch?v=1Bz4yH944fc)
+* [Lesson #292: YES SIR, THAT'S MY BABY](https://www.youtube.com/watch?v=AwFu8AB21aY)
+* [Lesson #293: BLUES RUN THE GAME (Jackson C. Frank)](https://www.youtube.com/watch?v=9WvQlSpReUo)
+* [Lesson #294: COCAINE (J.J. Cale/Eric Clapton)](https://www.youtube.com/watch?v=SoLfvQfAo9g)
+* [Lesson #295: MERCEDES BENZ (Janis Joplin)](https://www.youtube.com/watch?v=4_HKtGj5IPk)
+* [Lesson #296: POMP AND CIRCUMSTANCE (Sir Edward Elgar)](https://www.youtube.com/watch?v=fgmyoTWNMdo)
+* [Lesson #297: THE PARTING GLASS (Scottish Traditional)](https://www.youtube.com/watch?v=bDQiqko8LZQ)
+* [Lesson #298: LOOK WHAT THEY'VE DONE TO MY SONG MA (Melanie)](https://www.youtube.com/watch?v=9V66Uqf3LU4)
+* [Lesson #299: CALIFORNIA DREAMING (The Mamas & The Papas)](https://www.youtube.com/watch?v=9TtWZqxagMc)
+* [Lesson #300: RAINY DAY WOMEN #12 & 35 (Bob Dylan)](https://www.youtube.com/watch?v=Rbn1OA8amZ4)
+* [Lesson #301: WHERE HAVE ALL THE FLOWERS GONE (Pete Seeger)](https://www.youtube.com/watch?v=uySJVzpc3Ig)
+* [Lesson #302: APACHE (The Shadows)](https://www.youtube.com/watch?v=cz1SLJt18v8)
+* [Lesson #303: I SHOT THE SHERIFF (Bob Marley/Eric Clapton)](https://www.youtube.com/watch?v=PblbSSXahhI)
+* [Lesson #304: CAN'T BUY ME LOVE (The Beatles)](https://www.youtube.com/watch?v=qNMfPRdvFms)
+* [Lesson #305: ALL MY LOVING (The Beatles)](https://www.youtube.com/watch?v=86lzFXyau6c)
+* [Lesson #306: TOM'S DINER (Suzanne Vega)](https://www.youtube.com/watch?v=lS3K2JfHS7o)
+* [Lesson #307: YOU CAN'T ALWAYS GET WHAT YOU WANT (The Rolling Stones)](https://www.youtube.com/watch?v=yRtDCqHE4Ww)
+* [Lesson #308: SUMMERTIME BLUES (Eddie Cochran)](https://www.youtube.com/watch?v=2rSIXSjeh4Y)
+* [Lesson #309: IF YOU'RE HAPPY AND YOU KNOW IT (Children Song)](https://www.youtube.com/watch?v=c4z1lPftBvY)
+* [Lesson #310: COME TOGETHER (The Beatles)](https://www.youtube.com/watch?v=Ok4JbWifi1Y)
+* [Lesson #311: CHATTANOOGA CHOO CHOO (Glen Miller)](https://www.youtube.com/watch?v=gEnEtrsNr0c)
+* [Lesson #312: AGADOO (Black Lace)](https://www.youtube.com/watch?v=UD7KB9Qb0ao)
+* [Lesson #313: RING OF FIRE (Johnny Cash)](https://www.youtube.com/watch?v=rM6Ej78m_U0)
+* [Lesson #314: ALLE MEINE ENTCHEN (Children Song)](https://www.youtube.com/watch?v=jZHegO4zvUA)
+* [Lesson #315: MARRY YOU (Bruno Mars)](https://www.youtube.com/watch?v=ZhKkWKoHGlk)
+* [Lesson #316: LA DONNA E MOBILE (Guiseppe Verdi)](https://www.youtube.com/watch?v=0uEg5hmktFc)
+* [Lesson #317: LIKE A HURRICANE (Neil Young)](https://www.youtube.com/watch?v=yqgJveSr1cM)
+* [Lesson #318: STRANGERS IN THE NIGHT](https://www.youtube.com/watch?v=z1q2ZiJie1A)
+* [Lesson #319: THE GODFATHER (Love Theme)](https://www.youtube.com/watch?v=i8PrLQ9CrdY)
+* [Lesson #320: WE ARE THE WORLD (USA for Africa)](https://www.youtube.com/watch?v=cAjdgyyJiEA)
+* [Lesson #321: DA DOO RON RON (The Crystals)](https://www.youtube.com/watch?v=ovayInqnSSM)
+* [Lesson #322: MIDNIGHT SPECIAL (Traditional)](https://www.youtube.com/watch?v=S9mzpdmlB4w)
+* [Lesson #323: FATHER & SON (Cat Stevens)](https://www.youtube.com/watch?v=bQDQetQzAZQ)
+* [Lesson #324: BANKS OF THE OHIO (Traditional)](https://www.youtube.com/watch?v=vdp5Xi5BmTc)
+* [Lesson #325: DANSE BRANDEBOURGEOISE (Anonym)](https://www.youtube.com/watch?v=aeFpQwtPQcg)
+* [Lesson #326: THE BANANA BOAT SONG ("Day-O"/Harry Belafonte)](https://www.youtube.com/watch?v=aeri36sV_L4)
+* [Lesson #327: ISN'T SHE LOVELY (Stevie Wonder)](https://www.youtube.com/watch?v=hrnD4PeK2AU)
+* [Lesson #328: THE HIGHLAND BOAT SONG (Scottish Traditional)](https://www.youtube.com/watch?v=cZgVNvGRKuQ)
+* [Lesson #329: SANTA LUCIA (Neapolitan Traditional)](https://www.youtube.com/watch?v=PAe9ec5Sk4o)
+* [Lesson #330: AMOI SEG' MA UNS WIEDER (PART 1)](https://www.youtube.com/watch?v=ZzpE6aQkq7w)
+* [Lesson #331: AMOI SEG' MA UNS WIEDER (PART 2)](https://www.youtube.com/watch?v=xxbxQrMhfhQ)
+* [Lesson #332: FIRST BLUES](https://www.youtube.com/watch?v=lH7Qjem567w)
+* [Lesson #333: MY CREOLE BELLE (Mississippi John Hurt)](https://www.youtube.com/watch?v=lPh-QvBMV2I)
+* [Lesson #334: NO EXPECTATIONS (The Rolling Stones)](https://www.youtube.com/watch?v=DA7YDyilYQc)
+* [Lesson #335: YELLOW SUBMARINE (The Beatles)](https://www.youtube.com/watch?v=Fc7voQCcIUo)
+* [Lesson #336: EINE INSEL MIT ZWEI BERGEN (Das Lummerland-Lied)](https://www.youtube.com/watch?v=027wSsiFJEg)
+* [Lesson #337: MALAIKA (Miriam Makeba)](https://www.youtube.com/watch?v=3HCHOvE3hJQ)
+* [Lesson #338: SAFE AND SOUND (Taylor Swift)](https://www.youtube.com/watch?v=lNEWnaLETpw)
+* [Lesson #339: SPANISH HARLEM (Ben E. King)](https://www.youtube.com/watch?v=AZn3tCR1-14)
+* [Lesson #340: OCTOPUS'S GARDEN (The Beatles)](https://www.youtube.com/watch?v=UCXnZlcM7k8)
+* [Lesson #341: BYE BYE LOVE (The Everly Brothers)](https://www.youtube.com/watch?v=BNu_hDUbRi0)
+* [Lesson #342: HUNGRY HEART (Bruce Springsteen)](https://www.youtube.com/watch?v=3lVO4mw20fE)
+* [Lesson #343: MARV PONTKALLEG (Traditional)](https://www.youtube.com/watch?v=7CMCN2O3oTM)
+* [Lesson #344: SUMMER WINE (Nancy Sinatra/Lana Del Ray)](https://www.youtube.com/watch?v=3dukaGGUqkM)
+* [Lesson #345: STILL THE SAME (Bob Seger)](https://www.youtube.com/watch?v=kzkOljDpk4Y)
+* [Lesson #346: KOROBEINIKI (TETRIS-THEME)](https://www.youtube.com/watch?v=HS5LJ-XjeUs)
+* [Lesson #347: VAN DIEMEN'S LAND (U2)](https://www.youtube.com/watch?v=_aLQmW4F_aA)
+* [Lesson #348: THE END OF THE WORLD (Skeeter Davis)](https://www.youtube.com/watch?v=q40vK6sgeF4)
+* [Lesson #349: BUCKDANCER'S CHOICE (Sam McGee)](https://www.youtube.com/watch?v=pdn5jd7O29g)
+* [Lesson #350: DEMONS (Imagine Dragons)](https://www.youtube.com/watch?v=V__il-1qCZM)
+* [Lesson #351: IN THE ARMY NOW (Status Quo)](https://www.youtube.com/watch?v=HE2Mryp62E0)
+* [Lesson #352: SEASONS IN THE SUN (Terry Jacks)](https://www.youtube.com/watch?v=22HOZ5GncLo)
+* [Lesson #353: MARMOR, STEIN UND EISEN BRICHT (Drafi Deutscher)](https://www.youtube.com/watch?v=UbzwlQp9_xQ)
+* [Lesson #354: ALS ICH FORTGING (Dirk Michaelis/Karussell)](https://www.youtube.com/watch?v=poqdeJYC8xA)
+* [Lesson #355: HEUTE HIER, MORGEN DORT (Hannes Wader)](https://www.youtube.com/watch?v=4TrbM7giVTk)
+* [Lesson #356: BONANZA (Theme Song)](https://www.youtube.com/watch?v=lp5xZodeegU)
+* [Lesson #357: MULL OF KINTYRE (Paul McCartney/Wings)](https://www.youtube.com/watch?v=gI9_Y0xTOXY)
+* [Lesson #358: THE PASSENGER (Iggy Pop)](https://www.youtube.com/watch?v=D7c6LvmDkHw)
+* [Lesson #359: GANGSTA'S PARADISE (Coolio)](https://www.youtube.com/watch?v=6aBUYHKs6P8)
+* [Lesson #360: BARBARA ANN (The Beach Boys)](https://www.youtube.com/watch?v=lCpJvrZYMSA)
+* [Lesson #361: LEMON'S BLUES (Traditional)](https://www.youtube.com/watch?v=ykFRG3ckcyA)
+* [Lesson #362: USE SOMEBODY (Kings Of Leon)](https://www.youtube.com/watch?v=MArzsj95Psg)
+* [Lesson #363: MINUET IN F (Anonym)](https://www.youtube.com/watch?v=WODTEb7efM0)
+* [Lesson #364: MY HEART WILL GO ON (Titanic Theme Song)](https://www.youtube.com/watch?v=rUancUa5hT8)
+* [Lesson #365: THE SKYE BOAT SONG (Outlander Theme Song)](https://www.youtube.com/watch?v=-txrPQf8MQw)
+* [Lesson #366: TE DEUM ( Marc-Antoine Charpentier)](https://www.youtube.com/watch?v=VIM4DmqedEc)
+* [Lesson #367: BOAT ON THE RIVER (Styx)](https://www.youtube.com/watch?v=Rej2wepbO8A)
+* [Lesson #368: ANDANTINO (Joseph Küffner)](https://www.youtube.com/watch?v=fPuJQ08tvx4)
+* [Lesson #369: ONCE I LOVED A MAIDEN FAIR (John Playford)](https://www.youtube.com/watch?v=Nt9ygS03sPY)
+* [Lesson #370: BLACK OR WHITE (Michael Jackson)](https://www.youtube.com/watch?v=eizrgCRFn3A)
+* [Lesson #371: AU CLAIR DE LA LUNE (French Children Song)](https://www.youtube.com/watch?v=6jceD2WDv9E)
+* [Lesson #372: IT'S ALL OVER NOW, BABY BLUE (Bob Dylan)](https://www.youtube.com/watch?v=UcEArYwTyyQ)
+* [Lesson #373: NONESUCH (Rennaissance Dance Tune)](https://www.youtube.com/watch?v=shv6djSRJM8)
+* [Lesson #374: MEMORIES (Maroon 5)](https://www.youtube.com/watch?v=8XFZwooAXpM)
+* [Lesson #375: FALADEIRA](https://www.youtube.com/watch?v=usAgBm18fBA)
+* [Lesson #376: BALLADE (Erik Marchelie)](https://www.youtube.com/watch?v=1aP--1OIrWc)
+* [Lesson #377: WHEN THE SHIP COMES IN (Bob Dylan)](https://www.youtube.com/watch?v=UK7MUPdG1_w)
+* [Lesson #378: ADAGIO (Johann Kaspar Mertz)](https://www.youtube.com/watch?v=0KJO1VMos-g)
+* [Lesson #379: CANARY DANCE (J. van den Hove)](https://www.youtube.com/watch?v=JbrGsJ36sFw)
+* [Lesson #380: GUTEN ABEND, GUTE NACHT (Johannes Brahms/Lullaby)](https://www.youtube.com/watch?v=YRe_F55QRes)
+* [Lesson #381: ONLY YOU (The Flying Pickets)](https://www.youtube.com/watch?v=JQfYoAnUI3g)
+* [Lesson #382: HUSH LITTLE BABY (Traditional Lullaby)](https://www.youtube.com/watch?v=MjL7Q1mz7_w)
+* [Lesson #383: THE FRENCH SONG (Lucille Starr)](https://www.youtube.com/watch?v=gcs9TqzXObg)
+* [Lesson #384: ROCK AROUND THE CLOCK (Bill Haley & His Comets)](https://www.youtube.com/watch?v=CK4qU7iCWog)
+* [Lesson #385: EDELWEISS (The Sound Of Music)](https://www.youtube.com/watch?v=kR0WkVuECBw)
+* [Lesson #386: CANTORIA](https://www.youtube.com/watch?v=_bkmpb18XXY)
+* [Lesson #387: WIEGENLIED (Wolfgang Amadeus Mozart)](https://www.youtube.com/watch?v=MaXgvtWAFrM)
+* [Lesson #388: SOMEWHERE ONLY WE KNOW (Keane)](https://www.youtube.com/watch?v=dmcDmaE05eI)
+* [Lesson #389: DIE FORELLE (Franz Schubert)](https://www.youtube.com/watch?v=tYj4G-S531A)
+* [Lesson #390: AUTUMN/HERBST (Vivaldi / Four Seasons)](https://www.youtube.com/watch?v=yfs1FWhmKOM)
+* [Lesson #391: GIVE PEACE A CHANCE (John Lennon)](https://www.youtube.com/watch?v=AsmTRD9dOwE)
+* [Lesson #392: DANCE ME TO THE END OF LOVE (Leonard Cohen)](https://www.youtube.com/watch?v=v55aQev30lo)
+* [Lesson #393: CRYING IN THE RAIN (The Everly Brothers)](https://www.youtube.com/watch?v=r-IuC4zs2hI)
+* [Lesson #394: DOWN BY THE RIVERSIDE (Gospelsong)](https://www.youtube.com/watch?v=c2fsnvU3akY)
+* [Lesson #395: BE-BOP-A-LULA (Gene Vincent)](https://www.youtube.com/watch?v=sTyivTFa-og)
+* [Lesson #396: DEUTSCHE NATIONALHYMNE (Kaiserquartett / Joseph Haydn)](https://www.youtube.com/watch?v=xBYsXOnt0tE)
+* [Lesson #397: FOUR STRONG WINDS (Ian & Sylvia)](https://www.youtube.com/watch?v=6KWfb5In6Ig)
+* [Lesson #398: LODI (Creedence Clearwater Revival)](https://www.youtube.com/watch?v=n5sffMawX24)
+* [Lesson #399: DOWN BY THE RIVER (Albert Hammond)](https://www.youtube.com/watch?v=Yvb5FAfqPGo)
+* [Lesson #400: ANDANTINO (Matteo Carcassi)](https://www.youtube.com/watch?v=olkKjfdhr9U)
+* [Lesson #401: JOLLY OLD SAINT NICHOLAS (Christmas Carol)](https://www.youtube.com/watch?v=e9T0Nj2tacg)
+* [Lesson #402: HAPPY DAYS ARE HERE AGAIN (Milton Ager)](https://www.youtube.com/watch?v=Yiz6dSBWMxQ)
+* [Lesson #403: JOY TO THE WORLD (Christmas Carol)](https://www.youtube.com/watch?v=LdqdE-BHIt0)
+* [Lesson #404: GOOD KING WENCESLAS (Christmas Carol)](https://www.youtube.com/watch?v=ZvbOmRNXiEs)
+* [Lesson #405: WHITE CHRISTMAS (Bing Crosby)](https://www.youtube.com/watch?v=leScupHLluY)
+* [Lesson #406: STOP THE CAVALRY (Jona Lewie)](https://www.youtube.com/watch?v=tpNNvQLmjTs)
+* [Lesson #407: GODDESSES (Country Dance/John Playford)](https://www.youtube.com/watch?v=N26do3hMyXU)
+* [Lesson #408: JINGLE BELLS](https://www.youtube.com/watch?v=DI0wPXqstuI)
+* [Lesson #409: FELIZ NAVIDAD (Jose Feliciano)](https://www.youtube.com/watch?v=ylCkNp2LKMY)
+* [Lesson #410: HIROSHIMA (Wishful Thinking)](https://www.youtube.com/watch?v=gsi5ityIioE)
+* [Lesson #411: HAVA NAGILA (Hebrew Folksong)](https://www.youtube.com/watch?v=5DvATueDYXA)
+* [Lesson #412: FLYING THROUGH THE AIR (Oliver Onions)](https://www.youtube.com/watch?v=lS2VHQ4PvNY)
+* [Lesson #413: ADESTE FIDELES (O Come All Ye Faithful)](https://www.youtube.com/watch?v=T6YHOvzpoeQ)
+* [Lesson #414: OH SUSANNA (Stephen Foster)](https://www.youtube.com/watch?v=1l-uy-rarho)
+* Lesson #415 doesn't seem to exist.
+* [Lesson #416: IT'S MY LIFE (Bon Jovi)](https://www.youtube.com/watch?v=WaJYmGYRMSI)
+* [Lesson #417: THE RISING OF THE MOON (Irish Ballad)](https://www.youtube.com/watch?v=Nrc8vt4W7kk)
+* [Lesson #418: TI AMO (Umberto Tozzi)](https://www.youtube.com/watch?v=vah7NCQmY_g)
+* [Lesson #419: SUMM SUMM SUMM (Children's Song)](https://www.youtube.com/watch?v=YObDX_PiN_I)
+* [Lesson #420: EARLY MORNING RAG](https://www.youtube.com/watch?v=X3TLhLN1v7k)
+* [Lesson #421: DON'T WORRY, BE HAPPY (Bobby McFerrin)](https://www.youtube.com/watch?v=nZtl5kh5eXc)
+* [Lesson #422: DOVE'S FIGARY (English Country Dance)](https://www.youtube.com/watch?v=36RL-MHf0LA)
+* [Lesson #423: FOREVER YOUNG (Bob Dylan / Fast Version)](https://www.youtube.com/watch?v=qexfnT6cP_A)
+* [Lesson #424: THE WILD ROVER (Irish Traditional)](https://www.youtube.com/watch?v=UnwmrZmDskw)
+* [Lesson #425: WITH GOD ON OUR SIDE (Bob Dylan)](https://www.youtube.com/watch?v=WK84Qj-7Vjg)
+* [Lesson #426: I'LL TELL ME MA (Traditional)](https://www.youtube.com/watch?v=OJ8CzbaJks0)
+* [Lesson #427: MAIRI'S WEDDING (Scottish Folk Song)](https://www.youtube.com/watch?v=HOo49Ssm2lg)
+* [Lesson #428: DOWN ON THE CORNER (Creedence Clearwater Revival)](https://www.youtube.com/watch?v=cD4B9YfE6po)
+* [Lesson #429: CRIPPLE CREEK (Appalachian Folk Song)](https://www.youtube.com/watch?v=KHP0as-6_Ww)
+* [Lesson #430: WER HAT AN DER UHR GEDREHT? (Paulchen PantherTheme Song)](https://www.youtube.com/watch?v=WygeMLBW28Y)
+* [Lesson #431: BUDAPEST (George Ezra)](https://www.youtube.com/watch?v=M6l4BspVn-M)
+* [Lesson #432: O SOLE MIO / IT'S NOW OR NEVER (Traditional/Elvis Presley)](https://www.youtube.com/watch?v=oje5YOVprLE)
+* [Lesson #433: SHADY GROVE (Appalachian Folk Song)](https://www.youtube.com/watch?v=NGunZJpFIWo)
+* [Lesson #434: DEVOTED TO YOU (The Everly Brothers)](https://www.youtube.com/watch?v=qpNmmL1HLzk)
+* [Lesson #435: RIDERS ON THE STORM (The Doors)](https://www.youtube.com/watch?v=XiMIJeIXnWM)
+* [Lesson #436: ROCK MY SOUL (Gospel Song)](https://www.youtube.com/watch?v=OKz_0yKEKu0)
