@@ -433,3 +433,4 @@
 * [Lesson #434: DEVOTED TO YOU (The Everly Brothers)](https://www.youtube.com/watch?v=qpNmmL1HLzk)
 * [Lesson #435: RIDERS ON THE STORM (The Doors)](https://www.youtube.com/watch?v=XiMIJeIXnWM)
 * [Lesson #436: ROCK MY SOUL (Gospel Song)](https://www.youtube.com/watch?v=OKz_0yKEKu0)
+* [Lesson #437: WELLERMAN (Shanty/Nathan Evans)](https://www.youtube.com/watch?v=6ERE9VDmu74)
