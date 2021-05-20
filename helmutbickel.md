@@ -435,4 +435,5 @@
 * [Lesson #436: ROCK MY SOUL (Gospel Song)](https://www.youtube.com/watch?v=OKz_0yKEKu0)
 * [Lesson #437: WELLERMAN (Shanty/Nathan Evans)](https://www.youtube.com/watch?v=6ERE9VDmu74)
 * [Lesson #438: FLY LIKE AN EAGLE (American Native Song)](https://www.youtube.com/watch?v=QlMuYqNxeP0)
+* [Lesson #439: EARLY MORNING RAIN (Gordon Lightfoot)](https://www.youtube.com/watch?v=yyoXt3GktUU)
 
