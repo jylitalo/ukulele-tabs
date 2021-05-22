@@ -436,4 +436,4 @@
 * [Lesson #437: WELLERMAN (Shanty/Nathan Evans)](https://www.youtube.com/watch?v=6ERE9VDmu74)
 * [Lesson #438: FLY LIKE AN EAGLE (American Native Song)](https://www.youtube.com/watch?v=QlMuYqNxeP0)
 * [Lesson #439: EARLY MORNING RAIN (Gordon Lightfoot)](https://www.youtube.com/watch?v=yyoXt3GktUU)
-
+* [Lesson #440: HELLO (Lionel Richie)](https://www.youtube.com/watch?v=jboSiW01O2E)
