@@ -438,4 +438,5 @@
 * [Lesson #439: EARLY MORNING RAIN (Gordon Lightfoot)](https://www.youtube.com/watch?v=yyoXt3GktUU)
 * [Lesson #440: HELLO (Lionel Richie)](https://www.youtube.com/watch?v=jboSiW01O2E)
 * [Lesson #441: FOREVER YOUNG (Bob Dylan / Slow Version)](https://www.youtube.com/watch?v=7KSWSTYztco)
+* [Lesson #442: GLÜCK AUF, DER STEIGER KOMMT ("Steigerlied"/Traditional)](https://www.youtube.com/watch?v=cudc1H-TH48)
 
