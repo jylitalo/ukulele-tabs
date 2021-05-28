@@ -439,4 +439,5 @@
 * [Lesson #440: HELLO (Lionel Richie)](https://www.youtube.com/watch?v=jboSiW01O2E)
 * [Lesson #441: FOREVER YOUNG (Bob Dylan / Slow Version)](https://www.youtube.com/watch?v=7KSWSTYztco)
 * [Lesson #442: GLÜCK AUF, DER STEIGER KOMMT ("Steigerlied"/Traditional)](https://www.youtube.com/watch?v=cudc1H-TH48)
+* [Lesson #443: NED OF THE HILL (Irish Traditional)](https://www.youtube.com/watch?v=WxSi8c0vUvU)
 
