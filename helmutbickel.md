@@ -440,4 +440,6 @@
 * [Lesson #441: FOREVER YOUNG (Bob Dylan / Slow Version)](https://www.youtube.com/watch?v=7KSWSTYztco)
 * [Lesson #442: GLÜCK AUF, DER STEIGER KOMMT ("Steigerlied"/Traditional)](https://www.youtube.com/watch?v=cudc1H-TH48)
 * [Lesson #443: NED OF THE HILL (Irish Traditional)](https://www.youtube.com/watch?v=WxSi8c0vUvU)
+* [Lesson #444: THE ADDAMS FAMILY (Theme Song)](https://www.youtube.com/watch?v=hjv_za3HMpo)
+* [Lesson #445: THIS LITTLE LIGHT OF MINE (Gospel Song)](https://www.youtube.com/watch?v=7RtLk0gQH64)
 
