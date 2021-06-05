@@ -442,4 +442,5 @@
 * [Lesson #443: NED OF THE HILL (Irish Traditional)](https://www.youtube.com/watch?v=WxSi8c0vUvU)
 * [Lesson #444: THE ADDAMS FAMILY (Theme Song)](https://www.youtube.com/watch?v=hjv_za3HMpo)
 * [Lesson #445: THIS LITTLE LIGHT OF MINE (Gospel Song)](https://www.youtube.com/watch?v=7RtLk0gQH64)
+* [Lesson #446: SIERRA MADRE (Schürzenjäger)](https://www.youtube.com/watch?v=CXQdBgtB55w)
 
