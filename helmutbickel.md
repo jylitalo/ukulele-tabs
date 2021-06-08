@@ -444,4 +444,5 @@
 * [Lesson #445: THIS LITTLE LIGHT OF MINE (Gospel Song)](https://www.youtube.com/watch?v=7RtLk0gQH64)
 * [Lesson #446: SIERRA MADRE (Schürzenjäger)](https://www.youtube.com/watch?v=CXQdBgtB55w)
 * [Lesson #447: A SOALIN' (Peter, Paul & Mary)](https://www.youtube.com/watch?v=4drfV3zRbAA)
+* [Lesson #448: NATRAPJE (Harry Sacksioni)](https://www.youtube.com/watch?v=mzqgwjsbqeE)
 
