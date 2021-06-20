@@ -445,4 +445,10 @@
 * [Lesson #446: SIERRA MADRE (Schürzenjäger)](https://www.youtube.com/watch?v=CXQdBgtB55w)
 * [Lesson #447: A SOALIN' (Peter, Paul & Mary)](https://www.youtube.com/watch?v=4drfV3zRbAA)
 * [Lesson #448: NATRAPJE (Harry Sacksioni)](https://www.youtube.com/watch?v=mzqgwjsbqeE)
+* [Lesson #449: SKIP TO MY LOU (Nursery Rhyme)](https://www.youtube.com/watch?v=YKuADtxYRvc&t=6s)
+* [Lesson #450: MY GIRL (The Temptations)](https://www.youtube.com/watch?v=0f8l-7B3-EE)
+* [Lesson #451: SPIRIT IN THE SKY (Norman Greenbaum)](https://www.youtube.com/watch?v=mRgJOXQTxC8)
+* [Lesson #452: YOU'VE GOT SOMETHING THERE (Blind Boy Fuller)](https://www.youtube.com/watch?v=ZEyfeTffXpM)
+* [Lesson #453: LOVE IS BLUE (Paul Mauriat)](https://www.youtube.com/watch?v=fejzyj2kAPo)
+* [Lesson #454: AFTERGLOW (Ed Sheeran)](https://www.youtube.com/watch?v=lZ-6hsaqUmg)
 
