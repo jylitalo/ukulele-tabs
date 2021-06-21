@@ -2,6 +2,7 @@
 Curated list of tabs for ukulele
 
 Tabs:
+* [John Denver: Take Me Home, Country Roads](./john_denver/country_roads.md)
 * [John Lennon: Imagine](./john_lennon/imagine.md)
 * [Happy Birthday](./other/happy_birthday.md)
 
