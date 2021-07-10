@@ -30,6 +30,7 @@
 * [Blind Willie Johnson – The Soul of a Man (Slide Uke Tab)](http://ukulelehunt.com/2020/06/05/blind-willie-johnson-the-soul-of-a-man-slide-uke-tab/)
 * [Bob’s Burgers Theme](http://ukulelehunt.com/2012/10/25/bobs-burgers-theme-tab/); labels: easy
 * [BoJack Horseman Medley](http://ukulelehunt.com/2020/02/20/bojack-horseman-medley-tab/)
+* [Bob Dylan – Tangled Up in Blue (Tabs)](http://ukulelehunt.com/2021/06/29/bob-dylan-tangled-up-in-blue-tabs/)
 * [Bon Iver – 00000 Million](http://ukulelehunt.com/2017/03/02/bon-iver-00000-million-tab/)
 * [Bon Iver – Marion](http://ukulelehunt.com/2019/08/15/bon-iver-marion-tab/)
 * [Brain Scoop Theme](http://ukulelehunt.com/2015/07/23/brain-scoop-theme-tab/)
@@ -230,6 +231,7 @@
 * [Robert Schumann – Vanitas Vanitatum Mit Humor](http://ukulelehunt.com/2021/05/19/robert-schumann-vanitas-vanitatum-mit-humor-tabs/)
 * [Rodgers and Hammerstein – You’ll Never Walk Alone](http://ukulelehunt.com/2018/09/13/rodgers-and-hammerstein-youll-never-walk-alone-tab/)
 * [Roger Miller – Whistle Stop from Robin Hood](http://ukulelehunt.com/2013/04/25/roger-miller-whistle-stop-from-robin-hood-tab/)
+* [Ryan Adams – Stars Go Blue and Semisonic – Closing Time](http://ukulelehunt.com/2021/06/30/ryan-adams-stars-go-blue-and-semisonic-closing-time-tabs/)
 * [Ryan Gosling – Smoking Gun Bleeding Knives](http://ukulelehunt.com/2012/08/30/ryan-gosling-smoking-gun-bleeding-knives-tab/); labels: easy
 * [Sakura Sakura](http://ukulelehunt.com/2011/03/13/sakura-sakura-tab/); labels: easy
 * [Sanford and Son Theme](http://ukulelehunt.com/2010/05/27/sanford-and-son-theme-tab/)
