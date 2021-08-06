@@ -473,4 +473,5 @@
 * [Lesson #475: NEVER GOING BACK AGAIN (Fleetwood Mac)](https://www.youtube.com/watch?v=__d7SGe1WVk)
 * [Lesson #476: THE TWELVE DAYS OF CHRISTMAS](https://www.youtube.com/watch?v=Rioz_6WovEE)
 * [Lesson #477: LATIN FEELING](https://www.youtube.com/watch?v=UXFIO3gRm30)
+* [Lesson #478: TAKE ON ME (a-ha)](https://www.youtube.com/watch?v=GECck8c0uk4)
 
